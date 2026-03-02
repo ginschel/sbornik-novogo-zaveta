@@ -2,29 +2,29 @@
 
 ## Razděl 1
 
-1 V prvoj knigě jesm pisal, o Teofilě, o vsem, čto načel Jezus tvoriti i učiti,
+1 V prvoj knigě jesm pisal, o Teofile, o vsem, čto načel Jezus tvoriti i učiti,
 2 do dnja ovogo, kogda dal zapověd apostolam, ktoryh izbral črěz Svetogo Duha, I byl vzety v goru.
 3 Jim po stradanju svojem živym ukazal se s različnymi dovodami. Črěz četyrideset dni ukazal se jim i povědal o kraljevstvu Božjem.
-4 I s njimi jedavši, prědskazal jim, daby ne odšli iz Jeruzalema, ale daby čekali oběčanje otcevskogo, o ktoroj jeste slyšali od mene.
-5 Joan krestil vodoju, ale vy budete kreščeni Svetym Duhom po nemnogo dnjah.
+4 I s njimi jedavši, prědskazal jim, daby ne odšli iz Jeruzalema, no daby čekali oběčanje otcevskogo, o ktoroj jeste slyšali od mene.
+5 Joan krestil vodoju, no vy budete kreščeni Svetym Duhom po nemnogo dnjah.
 6 A tako oni sjedinivši se, pytali jego: Gospodine, či v tom času vratiš kraljevstvo Izraelsko?
 7 On že rěkl jim: Ne jest vaša věč, znati vrěme i časiny, ktore Otec v svojej moči izbral.
-8 Ale prijmete moč Svetogo Duha, ktory prijde na vas; i budete mi svědkami v Jeruzalemu, i v cěloj Judeji, i v Samariji, do poslědnjej granice zemji.
+8 No prijmete moč Svetogo Duha, ktory prijde na vas; i budete mi svědkami v Jeruzalemu, i v cěloj Judeji, i v Samariji, do poslědnjej granice zemji.
 9 I rěkl to, kogda oni gleděli, stal vozneseny v goru, i oblak vzel Go od očij jih.
 10 I kogda za njim v nebu idučim spěšno zrěli, vot, dva muži stali pri njimi v bělyh oděžah,
-11 i rěkli: Muži galilejski, začto stojite, zreči v nebo? Toj Jezus, ktory vzety jest od vas v nebo, tako prijde, kako Go jeste viděli idučego v nebo.
+11 i rěkli: Muži galilejski, začto stojite, gledajuči v nebo? Toj Jezus, ktory vzety jest od vas v nebo, tako prijde, kako Go jeste viděli idučego v nebo.
 12 Togda se vratili do Jeruzalema od gory, ktoru zovut Olivnoju i jest blizko Jeruzalema, imajuči put jedinoj suboty.
 13 I kogda izšli, vstupili do večernoj komnaty, kde žili Petr i Jakob i Joan i Andrej i Filip i Tomas, Bartolomej i Matej, Jakob Alfeus, i Simon Zelot i Judas Jakob.
 14 Vsi ti jedinodušno byvali v molitvě i prosbah, s ženami i s Marijeju, materju Jezusa, i s bratami jego.
-15 I v ovyh dnjah, vstal Petr v posrěd učenikov i rěkl: (A bylo mnogo ljudij. Okolo stu dvadeset ljudij).
+15 I v ovyh dnjah, vstal Petr v posrěd učenikov i rěkl: (A bylo mnogo ljudij. Okolo stu dvadeseti ljudij).
 16 Brati. Trěba izpolniti ovo pismo, ktoro prědskazal Duh Svety črěz usta Davida o Judasu, ktory byl vodžem tyh, ktori pojeli Jezusa;
 17 on byl jedin iz nas I tož dostal tu službu.
-18 On že dostal polje iz zaplaty za nečestnogo děla, pověsil se, prsknul na pol i vyšli vse vnutrnosti jego.
+18 On dostal polje iz zaplaty za nečestnogo děla, pověsil se, prsknul na pol i vyšli vse vnutrnosti jego.
 19 I bylo to javno vsim žiteljam v Jeruzalemu, tako že nazvali ovo polje na svojem jezyku Hakeldama, to jest polje krvi.
-20 Ibo jest napisano v knigah Psalm: Nehaj bude kvartira jego pusta, i daby ne bylo nikogo, kto by v njem žil, i biskupstvo jego daby vzel iny.
-21 Jedin iz tyh mužev, ktori s nami byvali po cěle vrěme, kogda Gospodin Jezus prěbyval medžu nami,
+20 Ibo jest napisano v knigah Psalmov: Nehaj bude kvartira jego pusta, i daby ne bylo nikogo, kto by v njem žil, i biskupstvo jego daby vzel iny.
+21 Jedin iz tyh mužev, ktori s nami byvali po cělom vrěmenu, kogda Gospodin Jezus prěbyval medžu nami,
 22 ktory od kreščenja Joana až do togo dnja, v ktorym Go vzeli do neba od nas, byl s nami svědkom vozkrešenja jego.
-23 I postavili dva: Jozefa, ktorogo zvali Barabasom, ktorogo tož nazyvali spravědlivogo, i Mateja.
+23 I postavili dvoh: Jozefa, ktorogo zvali Barnabasom, ktorogo tož nazyvali spravědlivogo, i Mateja.
 24 I molili se i govorili: Ty, Gospodine, ktory znaš srdca vsih, okaži iz tyh dvoh jedinogo, ktorogo jesi izbral,
 25 aby prijel město služby i apostolstva, iz ktorogo izpadl Judas, aby pošel na město svoje.
 26 I metali prěznačenje za njih. I padlo prěznačenje na Mateja, i stal se jednym iz jedinnadset apostolov.
@@ -35,10 +35,10 @@
 2 Togdy vniknul skoro iz neba šum, kakoby pripadal větr nasilny, i napolnil cěly dom, kde sěděli.
 3 I ukazali se jim razděljene jezyky oblika ognja, ktory usědl na každom iz njih.
 4 I napolnjeni sut vsi Duhom Svetym, i načeli govoriti inymi jezykami, kako jim Duh daval izgovarjati.
-5 A byli v Jeruzalemu Židi, muži bogati, iz každogo naroda tyh, ktori sut pod nebom.
+5 A byli v Jeruzalemu Židi, muži bogati, iz každogo naroda, ktori sut pod nebom.
 6 A kogda stal se toj glas, nabralo se mnogo ljudij i bojali se, da každy iz njih slyšal jih govoreči vlastnym svojim jezykom.
 7 I začudili se vsi, i divili se, govoreči jedni k drugym: Či vsi ti, ktori govoret, ne sut Galilejci?
-8 A kako každy iz nas svoj vlastny jezyk od njih slyši, v ktorom že jesmo se urodili?
+8 A kako každy iz nas svoj vlastny jezyk od njih slyši, v ktorom jesmo se urodili?
 9 Parti i Medi, i Elamiti, i ti, ktori živut v Mesopotamiji, v Judejskoj zemji, i v Kapadokiji, v Pontu, i v Aziji;
 10 V Frigiji, i v Pamfiliji, v Egiptu, i v stranah Libiji, ktora jest pri Kireně, i ljudi rimski; 
 11 Židi, i novo obračeni; Kretenčici, i Arabi; slyšimo jih, govoreči jezykami našimi velike děla Božje.
@@ -46,7 +46,7 @@
 13 No drugi zasmějajuči se, govorili: Ti sladkym vinom se popili.
 14 A stal Petr iz jedinnadset, voznesl glas svoj i kazal jim: Muži Judejski i vsi, ktori živete v Jeruzalemu! Nehaj vam to javno bude, a prijmete v ušah slova moje.
 15 Oni ne sut, kako vy mněvate, pijani, ibo toliko jest tretja časina.
-16 Ale to jest ovo, čto bylo kazano črěz proroka Joela:
+16 No to jest ovo, čto bylo kazano črěz proroka Joela:
 17 I bude v poslědnje dni, (govori Bog): Izliju Duha mojego na vsako tělo, i prorokovati budut syni vaši i dočery vaše, i mladenci vaši viděnja viděti budut, i staršim vašim sny budut.
 18 V ove dni na slugy moje i na služebniče moje izliju Duha mojego, i budut prorokovati;
 19 I pokažu čudesa na nebesah i znamenja na zemji. Krov, i ogonj, i několiko dyma.
@@ -54,19 +54,19 @@
 21 I stane se, da každy, ktore krikne ime Gospodina, bude spaseny.
 22 Muži Izraelski! Slušajte slova te Jezusa, ovogo iz Nazareta, muža od Boga proslavjenogo u vas silami i čudesami, i znamenjami, ktore tvoril Bog črěz Njego posrěd vas, kako vy sami znate;
 23 Togo po razloženym ukazom, ktoromu prězrěnje Božje bylo dano, črěz ruky bezbožnikov ukriževavši, jeste ubili.
-24 Togo Bog vozbudil, izpustil iz bolja smrti: kako bylo to nepodobne, aby od njego iměl byti zadržany.
-25 O njem govori David: Jesm viděl vsegda Gospodina prěd licem mojem; ibo mi jest po pravici, aby jesm klatil se.
+24 Togo Bog vozbudil, izpustil iz bolja smrti: kako bylo to nepodobno, aby od njego iměl byti zadržany.
+25 O njem govori David: Jesm viděl vsegda Gospodina prěd licem mojim; ibo mi jest po pravici, aby jesm ne klatil se.
 26 Tomu se razveselilo srdce moje i razradoval se jezyk moj, i tělo moje odpočne v naději;
-27 I ne ostaviš duše mojej v pekli, a ne daš svetomu tvojemu ogledati dekompoziciji.
+27 I ne ostaviš duše mojej v pekli, a ne daš svetomu tvojemu ogledati dekompozicije.
 28 Jesi oglasil mi dragy života, a napolniš mene radostju prěd licem tvojem.
 29 Brati! Mogu bezpečno govoriti do vas o patriarhu Davidu, da umrl i pogrebeny jest, a grob jego jest u nas až do dnja dnešnjego.
 30 Buduči prorokom i veduči, da mu Bog prisegnul, daby usědl potomka na tronu jego.
 31 Prědviděvši to, on rěkl o vozkrešenju Hristosa, da ne ostavjena jest duša jego v peklu, ni tělo jego ne vidělo gnitja.
 32 Togo Jezusa vozkresil Bog, čego my vsi jesmo svědkami.
-33 Po pravici Božja byvši vozvyšeny, i oběčanje Svetogo Duha prijevši od Otca, izlil to, čto vy nyně vidite i slyšite.
+33 Po pravici Božjej byvši vozvyšeny, i oběčanje Svetogo Duha prijevši od Otca, izlil to, čto vy nyně vidite i slyšite.
 34 Ibo David ne vstupil do neba, no sam pověda: Rěče Gospodin Gospodu mojemu, sědi po pravici mojej,
 35 až položu vragov tvojih pri podnožju nog tvojih.
-36 Nehaj togdy vě věrno cěly dom Izraelsky, da jego Bog Gospodinom i Hristosom učinil, togo Jezusa, kogo vy ukrižovali.
+36 Nehaj togdy zna věrno cěly dom Izraelsky, da jego Bog Gospodinom i Hristosom učinil, togo Jezusa, kogo vy ukrižovali.
 37 A to slyšavši, byli smutni v srdcah i rěkli Petru i drugym apostolom: Čto imamo činiti, brati?
 38 Togdy Petr rěkl jim: Pokajanje činite, i nehaj každy iz vas bude kreščeny v ime Jezusa Hristosa na odpuščanje grěhov, i prijmete dar Svetogo Duha.
 39 Ibo vam jest to oběčanje i dětam vašim, i vsem, ktori daleko sut. Kogokoli označi Gospodin, Bog naš.
@@ -84,66 +84,66 @@
 1 A Petr i Joan vstupali do crkvi v devetoj časině molitvy.
 2 A něktory muž byl hromy od života materi svojej i nosili jego. Každy den jego sadili pri dverah crkovnyh, ktore nazyvali se Krasnymi, aby prosil o milostynje od tyh, ktori vhodili do crkvi.
 3 On, viděvši Petra i Joana, čto htěli idti do crkvi, prosil jih o milostynje.
-4 A Petr i Joan na njego gleděli i rěkli: Zri na nas!
+4 A Petr i Joan na njego gleděli i rěkli: Gledaj na nas!
 5 On gleděl na njih, nadějuči se, aby něčto od njih vzeti.
-6 A Petr rěkl: Srěbra i zlata ne imam; ale čto imam, to tobě dam: V imeni Jezusa Hristosa Nazaretskogo vstani i hodi!
-7 I prijavši jego za pravu ruku, voznesl jego, i už prišla sila v jego nogy i kosti.
+6 A Petr rěkl: Srěbra i zlata ne imam; no čto imam, to tobě dam: V imeni Jezusa Hristosa Nazaretskogo vstani i hodi!
+7 I vzevši jego za pravu ruku, vozdvignul jego, i už prišla sila v jego nogy i kosti.
 8 I vozskočivši, stal i hodil, i vstupil s njimi do crkvi, hodeči i skakajuči i hvaleči Boga.
-9 A vsaki ljudi viděli jego hodečego i hvalęčego Boga.
+9 A vsaki ljudi viděli jego hodečego i hvalečego Boga.
 10 I poznali, da to byl on, ktory za milostynje sěděl u Krasnyh crkovnyh dverah, i napolnili se strahom i udivjenjem nad tym, čto se mu stalo.
 11 A kogda on hromy, držal Petra i Joana, priběgli k njemu vsi ljudi do saly, ktora nazyvala se Salomonovoju, udivivši se.
 12 Kogda Petr to viděl, kazal ljudam: Muži Izraeljski! Čemu se tomu divite, abo čemu gledate na nas, kakoby naša sila abo moč to učinili, aby on hodil?
 13 Bog Abrahama i Isaaka i Jakoba, Bog otcev naših, proslavil Jezusa, Syna svojego, ktorogo vy jeste prědali i kogo jeste odrěkli prěd licem Pilata, ktory myslil, da on zasluživaje izpuščenje.
-14 Ale vy jeste odrěkli se ovogo svetogo i spravědlivogo i jeste prosili o ubijcu, aby vam byl darovany.
+14 No vy se jeste odrěkli ovogo svetogo i spravědlivogo i jeste prosili o ubijcu, aby vam byl darovany.
 15 I jeste ubili daritelja života, ktorogo Bog vozkresil od mrtvyh, čemu my svědkami jesmo.
 16 A črěz věru v jego ime, togo, kogo vy vidite i znajete, utvrdilo se ime jego; věra, ktora črěz njego jest, dala tomu to doskonalo zdravje prěd licem vas svih.
-17 Ale nyně, brati! Věm, da jeste to iz nesvědomosti učinili, kako i načelniki vaši.
-18 No Bog, ktori črěz usta prorokov svojih prědpověděl, da Hristos Jego stradati bude, tak to izpolnil.
+17 No nyně, brati! Věm, da jeste to iz nesvědomosti učinili, kako i načelniki vaši.
+18 No Bog, ktory črěz usta prorokov svojih prědpověděl, da Hristos Jego stradati bude, tak to izpolnil.
 19 Činite pokajanje, a odvratite se, aby byli izgladženi grěhy vaše.
 20 Kogdy by prišli časy ogledanja lica Gospodina, by poslal ovogo, ktory vam povědany jest, Jezusa Hristosa.
 21 Zaisto nebesa ima objeti do vrěmene popravjenja svih věčij, čto prědpověděl Bog črěz usta svojih svetyh prorokov od věkov.
 22 Už Mojzes do otcev rěkl: Proroka vam vozbudi Gospodin, Bog vaš, iz bratov vaših, kako mene; ovogo slušati budete vo vsem, čto do vas govoriti bude.
 23 I stane se, da každa duša, ktora by ne slušala togo proroka, bude izgladžena iz naroda.
 24 I vsi proroki od Samuela i iny po njem, ktori izstupili, prědpověděli tož te dni.
-25 Vy jeste synami prorokov i testamenta, ktoro postanovil Bog s otcami našimi, govoreči do Abrahama: A v sěmeni tvojem blagoslovjene budut vse narody zemji.
+25 Vy jeste synami prorokov i zavěta, ktory postanovil Bog s otcami našimi, govoreči do Abrahama: A v sěmeni tvojem blagoslovjene budut vse narody zemji.
 26 Vam najprvo Bog vozbudil Syna svojego Jezusa i poslal jego, aby vam blagoslovil; daby se každy iz vas odvratil od zlosti svojej.
 
 ## Razděl 4
 
-1 I kogda oni govorili k ljudu, prišli do njih svečenniki i vojevody crkovni, i sadukeji.
+1 I kogda oni govorili k ljudu, prišli do njih svečenniki i vojevody crkovni, i Sadukeji.
 2 Razgněvani byli, že učili ljudij, i povědali v Jezusu vozkrešenje iz mrtvyh.
-3 I pojmali jih, i dali je do tjurmy do zautra; ibo už byl večer.
-4 A mnogi iz tyh, ktori ovo slovo slyšali, uvěrili; i bylo čislo mužev okolo pet tyseč.
+3 I pojmali jih, i dali jih do tjurmy do zautra; ibo už byl večer.
+4 A mnogo iz tyh, ktori ove slova slyšali, uvěrili; i bylo čislo mužev okolo pet tyseči.
 5 I stalo se zautra, da se sobrali načelniki jih i starši, i učeni v Pismu v Jeruzalemu,
 6 I Annas, vrhovny svečennik, i Kajafas, i Joan, i Aleksandr, i koliko jih bylo iz roda vrhovnyh svečennikov;
-7 I postavivši je v srědinu, pytali jih: Kakoju siloju i kakym imenem to jeste učinili?
+7 I postavivši jih v srědinu, pytali jih: Kakoju siloju i kakym imenem to jeste učinili?
 8 Togda Petr, buduči polny Duha Svetogo, rěkl jim: Načelniki ljudski i starši izraelski!
-9 Kak my dnes imajemo byti sudženi za dobrodějstvo čelověku hvoromu učinjenogo, čto by on byl uzdravjeny;
+9 Kak my dnes imajemo byti sudženi za učinjeno dobrodějstvo člověku hvoromu, aby  on byl uzdravjeny;
 10 Nehaj vam vsim vědomo bude i vsemu ljudu izraelskomu, že v imene Jezusa Hristosa Nazaretskogo, ktorogo jeste ukrižovali, ktorogo Bog vozbudil iz mrtvyh, črěz Togo ov stoji prěd vami zdravy.
 11 To jest kamen kydnuty črěz vas budujučih, ktory se stal glavoju ųgolnoju.
-12 I ne jest v nijednom inom spasenju; ibo ne jest nikogo inogo imena pod nebom, danogo ljudam, črěz kogo byste smogli byti spaseni.
-13 Videči bezpečnost Petra i Joana, i razuměvši, že on byli ljudami neučenymi i prostakami, divili se i poznali, da oni byli s Jezusom.
-14 Videči tož ovogo čelověka s njimi stoječego, ktory byl uzdravjeny, ne iměli čto protiv tomu govoriti.
+12 I ne imaš v nijednom inom spasenja; ibo ne jest nikogo inogo imena pod nebom, danogo ljudam, črěz kogo byste smogli byti spaseni.
+13 Videči bezpečnost Petra i Joana, i razuměvši, že oni byli ljudami neučenymi i prostakami, divili se i poznali, da oni byli s Jezusom.
+14 Videči tož ovogo člověka s njimi stoječego, ktory byl uzdravjeny, ne iměli čto protiv tomu govoriti.
 15 A razkazyvali jim izstupiti iz rady, radili se medžu soboju,
-16 Govorili: Čto imajemo dělati s tymi ljudami? Ibo znamenje činjeno jest črěz nje, to vsem byvajučim v Jeruzalemu jest vědomo, a ne možemo to zaprěčiti.
-17 Ale aby se to više ne razglasilo medžu ljudami, zagrozimo jim silno, aby više v tom imeni nikomu ne govorili.
-18 A prizvavše jih, zakazali jim, aby už ne govorili, ni učili v imeni Jezusa.
-19 Ale Petr i Joan rěkli jim: Da li to spravědlivo prěd licem Božjim, vašim kazanjam bolje slušati než kazanij Boga? Razsudite.
+16 Govorili: Čto imajemo dělati s tymi ljudami? Ibo znamenje činjeno jest črěz njih, to vsim byvajučim v Jeruzalemu jest vědomo, a ne možemo togo zaprěčiti.
+17 No aby se to vyše ne razglasilo medžu ljudami, zagrozimo jim silno, aby vyše v tom imeni nikomu ne govorili.
+18 A prizvavši jih, zakazali jim, aby už ne govorili, ni učili v imeni Jezusa.
+19 No Petr i Joan rěkli jim: Jest li to spravědlivo prěd licem Božjim, vašim kazanjam bolje slušati než kazanjam Boga? Razsudite.
 20 Ibo my ne možemo togo, čto jesmo viděli i slyšali, ne govoriti.
-21 A oni zagrozivše jim, pustili je, ničego ne naševši, kako by je pokarati, ibo narod hvalil za to, čto se stalo.
-22 Ibo ovomu člověku bylo više než četyrideset let, ktoromu se stalo to znamenje izcěljenja.
-23 A kogda je pustili, prišli k svojim i oglasili jim, vse čto jim vyšni svečenniki i starši govorili.
+21 A oni zagrozivši jim, pustili je, ničego ne naševši, kako by jih pokarati, ibo narod jih hvalil za to, čto se stalo.
+22 Ibo ovomu člověku bylo vyše než četyrideset let, ktoromu se stalo to znamenje izcěljenja.
+23 A kogda jih pustili, prišli k svojim i oglasili jim vse, čto jim vysši svečenniki i starši govorili.
 24 Slyšavši to, jedninoju myslju vozdvignuli glas svoj k Bogu i rěkli: Gospodine! ty jesi Bog, ktory učinil nebo i zemju, i morje i vse, čto v njih jest:
-25 Ktory Duhom Svetym črěz usta Davida, slugi svojego, pověděl: Čego se pobudžali narody, a narody prazdne věči myslili?
+25 Ktory jesi Duhom Svetym črěz usta Davida, slugy svojego, pověděl: Čemu se pobudžali narody, a narody prazdne věči myslili?
 26 Stanuli kralji zemji i knezi sobrali se razom protiv Gospodinu i protiv namazaniku jego.
 27 Ibo se sobrali pravdivo protiv svetomu Synu tvojemu Jezusu, ktorogo namazal, Herod i Poncky Pilat s poganami i s narodom Izraelskym.
 28 Aby učinili, vse čto ruka tvoja i rada tvoja prěd tym postavila, aby se stalo.
-29 I nyně, Gospodine! gledni na grozby jih, a daj slugam tvojim so vsim bezpečnost, aby govoriti slovo tvoje,
+29 I nyně, Gospodine! gledni na grozby jih, a daj slugam tvojim s vsim bezpečnost, aby govoriti slovo tvoje,
 30 Segnuvši ruku tvoju k izcěljenju i k činjenju znamenij i čudes, črěz ime svetogo Syna tvojego Jezusa.
 31 I kogda oni se molili, potresalo se ovo město, na ktorom byli sobrani, i napolnjeni byli vsi Svetym Duhom i govorili slovo Božje s bezpečnostju.
-32 A u ovogo množstva věrečih bylo srdce jedno i duša jedna, a ni jedin iz iměnij svojih ne zval ničto svojeju vlastnoju, ale iměli vse věči razom.
-33 A velikoju siloju Apostoli davali svědočstvo o voskorěšenju Gospodina Jezusa i byla velike milosrdje nad njimi vsimi.
-34 Ibo ni jednogo ne bylo medžu njimi nikogo v potrěbě; ibo ktokoli iměl polja abo domy, prodaval i prinesl groše za to, čto prodal,
+32 A u ovogo množstva věrečih bylo srdce jedno i duša jedna, a ni jedin iz iměnij svojih ne zval ničto svojeju vlastnoju, no iměli vse věči razom.
+33 A velikoju siloju Apostoli davali svědočstvo o vozkrešenju Gospodina Jezusa i bylo veliko milosrdje nad njimi vsimi.
+34 Ibo nijednogo ne bylo medžu njimi v potrěbě; ibo ktokoli iměl polja abo domy, prodaval i prinesl groše za to, čto prodal,
 35 I kladli prěd nogami apostolam, i razdavano to bylo každomu, koliko komu bylo trěba.
 36 Togdy Jozef, ktory nazvany jest od Apostolov Barnabasom, (to jest syn razkoš), Levit, rodom iz Cypra,
 37 Imajuči polje, prodavši je, prinesl groše i položil je u nog apostolskyh.
@@ -152,15 +152,15 @@
 
 1 Jedin muž, imenom Ananijas, s ženoju svojeju Safiroju, prodal polje,
 2 i odjel něčto od tyh pěnezy za sebe, o čem jego žena znala, i prinesl něktoru čest, položivši ju k nogam apostolov.
-3 I rěkl Petr: „Ananijase, čemu že Satan napolnil tvoje srdce, dabys lgal Svetomu Duhu i odjel od pěnezy za polje?
-4 Či že to, čto jesi iměl, ne bylo tvoje? A čto jesi prodal, ne v tvojej oblasti ostavalo? Čemu že jesi dopustil taku věč k tvojemu srdcu? Ne jesi lgal ljudam, ale Bogu.“
+3 I rěkl Petr: Ananijase, čemu že Satan napolnil tvoje srdce, dabys lgal Svetomu Duhu i odjel od pěnezov za polje?
+4 Či že to, čto jesi iměl, ne bylo tvoje? A čto jesi prodal, ne v tvojej oblasti ostavalo? Čemu že jesi dopustil taku věč k tvojemu srdcu? Ne jesi lgal ljudam, no Bogu.
 5 Čujuči to, Ananijas padl i umrl. I prišel veliky strah na vsih, ktory to čul.
-6 A vstavši, mladenci vzeli jego na bog i iznesli, pogrebali.
+6 A vstavši, mladenci vzeli jego na bok i iznesli, pogrebali.
 7 I stalo se po někakom vrěmeni, približno po treh časinah, da i jego žena, ne znajuči, čto se stalo, prišla.
-8 I rěkl jej Petr: „Rěči mi, či za toliko jesti prodali to polje?“ A ona rěkla: „Da, za toliko.“
-9 I rěkl jej Petr: „Čemu že jeste se dogovorili, dabyste pokusili Duha Gospodina? Vot nogy tyh, ktori pogrebali tvojego muža, sut pri dverah i tebe iznesut.“
+8 I rěkl jej Petr: Rěči mi, či za toliko jesti prodali to polje? A ona rěkla: Da, za toliko.
+9 I rěkl jej Petr: Čemu že jeste se dogovorili, dabyste pokusili Duha Gospodina? Vot ti, ktori pogrebali tvojego muža, sut pri dverah i tebe iznesut.
 10 I padla ona naglo pri jego nogah i umrla. A mladenci našli ju mrtvu, i iznesli, pogrebali ju blizko jej mužu.
-11 I prišel veliki strah na cělu parafiju i na vsih, ktori to čuli.
+11 I prišel veliky strah na cělu parafiju i na vsih, ktori to čuli.
 12 Potom že črěz ruky apostolov dějalo se mnogo znamenij i čudes medžu ljudami, (a vsi oni byli soglasno razom v salě Salomona.
 13 A od inyh nikto ne iměl smělosti približiti se jim, no ljudi vysoko jih ocěnjali.
 14 I pribyvalo mnogo věrečih Gospodina, mužev i žen).
@@ -168,14 +168,14 @@
 16 Prišlo tož mnogo iz okolnyh měst do Jeruzalema, prinoseči boljnyh i imajuči v sobě nečisti duhy; i vsi ti byli uzdravjeni.
 17 Togda vstal najvysši svečennik i vsi, ktori s njim byl, ktori byli iz sekty Saducejev, napolnjeni sut zavistju;
 18 I shvatili Apostolov i dali jih do obyčajnogo vezenje.
-19 Ale Angel Gospodnji v noči otvoril dveri vezenja, i izvedši jih rěkl:
+19 No Angel Gospodnji v noči otvoril dveri vezenja, i izvedši jih rěkl:
 20 Idite že, govorite k ljudam v crkvi vse slova togo života.
 21 Togda oni uslyšavši to, vošli na svitanju do crkvi i učili. A priševši najvysši svečennik i ti, ktori s njim byli, sozvali sovět i vsih starějših synov Izraelskyh, i poslali do vezenja, aby Apostoli byli izsmějani.
 22 A kogda slugi prišli, ne našli jih v vezenju, i vrativši se, objavili:
 23 Vezenje jest zamknuto so vsakoju marlivostju, i straže na dvore prěd dverami stojet, no otvorivši, nikogo jesmo v njem ne našli.
-24 A kogda te slova uslyšali najvysši svečennik, i hetman crkovny, i vyšni svečenniki ne znali, čto bude iz togo.
+24 A kogda te slova uslyšali najvysši svečennik, i hetman crkovny, i vysši svečenniki ne znali, čto bude iz togo.
 25 A prišel někto, objavil jim: Vot muži, ktoryh jeste dali do vezenja, stojet v crkvi, i učet ljud.
-26 Togda pošel hetman s slugami i privedl jih bez nasilja; (ibo se ljudu bojali, aby ne byli kamenovani.)
+26 Togda pošel hetman so slugami i privedl jih bez nasilja; (ibo se ljuda bojali, aby ne byli kamenovani.)
 27 A privedši jih, postavili jih prěd sovětom; i pytal jih najvysši svečennik:
 28 Či jesmo vam strogo ne zakazali, byste v tom imeni ne učili? A jeste napolnili Jeruzalem naukoju vašeju i hčete na nas privesti krov člověka togo.
 29 Togda odgovorili Petr i Apostoli: Boljše trěba slušati Boga, než ljudij.
@@ -186,25 +186,25 @@
 34 Togdy vstal v radě něktory Farizej, imenom Gamalijel, učitelj zakona, považany  u vsego naroda, prikazal, aby na maly čas izvedli Apostolov;
 35 I rěkl jim: Muži Izraelski! imějte se na pozornosti s strany tyh ljudij, čto byste iměli činiti.
 36 Prěd tymi dnjami vstal Teodas, izobrazivši se za čto, do kogo se privezalo mužev okolo četyristo; kogo ubili, a vsi, ktori s njim občili se, razsypani sut.
-37 Po njem vstal Judas Galilejski za dni čisljenje ljuda i rukovodil mnogo naroda za soboju; ale i on umrl, i vsi, ktori s njim občili se, razsypani sut.
+37 Po njem vstal Judas Galilejski za dni čisljenje ljuda i rukovodil mnogo naroda za soboju; no i on umrl, i vsi, ktori s njim občili se, razsypani sut.
 38 Nyně povědam vam: Dajte pokoj tym ljudam i ostavite jih; abo jestli jest od ljudij ta rada ili to dělo, propade;
-39 Ale jestli jest od Boga, ne budete mogli togo niščiti, byste ne našli v boju s Bogom.
+39 No jestli jest od Boga, ne budete mogli togo niščiti, byste ne našli v boju s Bogom.
 40 I uslyšali jego. I kazali do sebe Apostolov i bivši jih, zakazali, aby ne govorili v imeni Jezusa; i izpustili jih.
-41 A tako oni izšli iz ovoj rady, radujuči se, da se stali godnymi trpěti dlja imena Jezusa.
+41 A tako oni izšli iz ovoj rady, radujuči se, da se stali godnymi trpěti za ime Jezusa.
 42 I dalje na každy den v crkvi i po domah učili i povědali o Jezusu Hristosu.
 
 ## Razděl 6
 
-1 A v ove dni, kogda kolikost učenikov rastla, vozneslo se roptanje Grekov protiv Židam, dabyly zanedbane vdovy jih v dostavjenju jedenjem.
+1 A v ove dni, kogda kolikost učenikov rastla, vozneslo se roptanje Grekov protiv Židam, ibo byly zanedbane vdovy jih v dostavjenju jedenjem.
 2 I tako ovi dvanadset zvali do sebe množstvo učenikov, rěkli: Ne jest pravo, by my ostavili slovo Božje i služili stolam.
 3 Izberite, brati, medžu soboju sedm mužev, imějučih dobro svědočstvo, polnyh Duha Svetogo i mudrosti, ktore postavimo nad tym dělom.
 4 A my molitvy i poslušnost slova budemo dbati.
-5 I podobalo se slovo vsemu množstvu. I izbrali Ščepana, muža polnogo věry i Duha Svetogo, i Filipa, i Prohora, i Nikanora, i Timona, i Parmena, i Nikola, proselyta Antiohijskogo.
+5 I podobalo se slovo vsemu množstvu. I izbrali Stepana, muža polnogo věry i Duha Svetogo, i Filipa, i Prohora, i Nikanora, i Timona, i Parmena, i Nikola, proselyta Antiohijskogo.
 6 Tyh postavili prěd Apostolami, ktori molivši se, položili na njih ruky.
 7 I rastlo slovo Božje, i množilo se velmi čislo učenikov v Jeruzalemu; i veliko množstvo svečennikov bylo poslušno věrě.
 8 A Stepan, polny věry i sily, tvoril čudesa i znamenja velike medžu ljudami.
-9 I vstali něktori iz tyh, ktori byli iz synagogy, ktoru zovut synagogoju Libertincov i Kirenčanov, i Aleksandrijcov, i tyh, ktori byli iz Kilikiji i Aziji, i sporili se s Ščepanom.
-10 Ale ne mogli protivstati se mudrosti i duhu, ktory govoril.
+9 I vstali něktori iz tyh, ktori byli iz synagogy, ktoru zovut synagogoju Libertincov i Kirenčanov, i Aleksandrijcov, i tyh, ktori byli iz Kilikiji i Aziji, i sporili se s Stepanom.
+10 No ne mogli protivstati se mudrosti i duhu, ktory govoril.
 11 Togda najeli mužev, ktori pověděli: My slyšali jego govorečego bogohulne slova protiv Mojzesu i protiv Bogu.
 12 I vozbudili ljudi i starših, i učiteljev Zakona; i shvatili jego i privedli do rady.
 13 I postavili lživyh svědkov, ktori rěkli: Toj člověk ne prěstane govoriti bogohulnyh slov protiv tomu svetomu městu i zakonu.
@@ -219,9 +219,9 @@
 4 Togdy izševši iz zemji Haldejskoj, byl v Haraně, a odtud, kogdy umrl otec jego, prěnesl jego Bog do zemji toj, v ktoroj vy tutčas byvate.
 5 I ne dal jemu v njej naslědovanja ni navet širokosti nogy, hot mu ju oběčal dati v naslědovanju, i potomkom jego po njem, kogdy ješče ne iměl potomka.
 6 I govoril mu tako Bog: Potomki tvoje budut čudžincami v čudžej zemji budut v nevolji, i zlo jim bude črěz četyrista let.
-7 Ale toj narod, komu služiti budut, ja budu sudil, rěkl Bog; a potom izojdut i služiti mně budut na tem městu.
+7 No toj narod, komu služiti budut, ja budu sudil, rěkl Bog; a potom izojdut i služiti mně budut na tem městu.
 8 I dal jemu testament obrězanja; i tako Abraham splodil Izaka i obrězal jego dnja osmogo, a Izak Jakoba, a Jakob dvanadset patriarhov.
-9 A patriarhi nenaviděli Jozefa, prodali jego do Egipta; ale Bog byl s njim.
+9 A patriarhi nenaviděli Jozefa, prodali jego do Egipta; no Bog byl s njim.
 10 I izrval jego iz vsih jego morjenja, a dal jemu lasku i mudrost prěd Faraonom, kraljem Egiptskym, ktory postavil jego načelnikom nad Egiptom i nad vsim domom svojim.
 11 Potom prišel glad na cělu zemju Egiptsku i Hananejsku, i veliko morjenje, i ne nahodili jedenja otci naši.
 12 A kogdy uslyšal Jakob, že žita byli v Egiptu, poslal otcev naših prvy raz.
@@ -251,7 +251,7 @@
 36 I on jih izvedl, tvoril čudesa i znamenja na zemji Egiptskoj i na morju Črvenom, i na pustynji, črěz četyrideset lět.
 37 To jest Mojzes, ktory rěkl synam Izraelskym: Proroka vam vozdvigne Gospod, Bog vaš, iz bratov vaših, kako mene, jego budete slušati;
 38 To jest, ktory byl v gromadženju na pustynji s Angelom, ktory govoril jemu na gorě Sinaj, i s otcami našimi, ktory prijel slova Božje žive, aby jih nam podal.
-39 Ktoromu ne htěli byti poslušni otci naši, ale jego odkydnuli i obratili se srdcami svojimi do Egipta.
+39 Ktoromu ne htěli byti poslušni otci naši, no jego odkydnuli i obratili se srdcami svojimi do Egipta.
 40 Govorili Aaronu: Sdělaj nam bogov, ktori by šli prěd nami; ne věmo. Čto se stalo s Mojzesom, ktory nas izvedl iz zemji Egiptskoj.
 41 I sdělali v ove dni tele i prinosili žrtvu tomu idolu, i veselili se v dělah ruk svojih;
 42 I odvratil se Bog i prědal jih, aby služili vojsku nebeskomu, kako jest napisano v knigah proročskyh: Či jeste prinosili mně podarky i ine žrtvy na pustynji črěz četyrideset lět, dome Izraelsky?
@@ -260,7 +260,7 @@
 45 Otci naši ju vnesli s Josuem tam, kde byla zemja poganov, ktoryh Bog izgnal od obličja otcev naših, do dni Davida;
 46 Toj našel milost prěd licem Božjim i prosil, da najde palatku za Boga Jakoba.
 47 A Salomon jemu postavil dom.
-48 Ale Najvysši ne prěbyva v svetiliščah rukami tvorjenyh, kako prorok skazal:
+48 No Najvysši ne prěbyva v svetiliščah rukami tvorjenyh, kako prorok skazal:
 49 Nebesa sut tronom mojim, a zemja podnožje nog mojih. Kaky dom mně sbudujete, govori Gospodin, ili ktore jest město pokoja mojego?
 50 Či ruka moja ne učinila vse to?
 51 Tvrdošije i neobrězani srdcem i ušami! Vy se vsegda protivite Svetomu Duhu, kako otci vaši, tako i vy.
@@ -271,16 +271,16 @@
 56 I rěkl: "Gledajte, vidžu nebesa otvorjene i Syna člověčskogo stoječego po pravici Božjej."
 57 A oni kriknuli glasnym glasom, držali uši svoje i kydnuli se na njego jedinosmyslno.
 58 I gonili jego iz města, kamenovali; a svědki položili oděži svoje pri nogah mladčika, kogo zvali Saulom.
-59 I kamenovali Ščepana molivšego se i rěkuči: "Gospodine Jezus, prijmi duha mojego!"
+59 I kamenovali Stepana molivšego se i rěkuči: "Gospodine Jezus, prijmi duha mojego!"
 60 A kleknul na kolěna, kazal glasnym glasom: "Gospodine, ne počitaj jim togo za grěh!" A to rěkuči, zasnul.
 
 ## Razděl 8
 
 1 A Saul dopustil ubitje jego. I vozneslo se ovogo dnja veliko gonjenje v svetilišču, ktoro bylo v Jeruzalemu, i razběgli se vsi po krajah zemji Judejskoj i Samarijskoj, kromě Apostolov.
-2 I pogrebli Ščepana muži bogoboječi i učinili nad njim plač veliky.
+2 I pogrebli Stepana muži bogoboječi i učinili nad njim plač veliky.
 3 A Saul niščil crkov, vhodeči v domy i iztegnul mužev i žen, podaval je do vezenja.
 4 A ti, ktori razběgli, hodili I povědali slovo Božje.
-5 No Filip pošel do grada glavnogo Samariji i povědal jim o Hristosu.
+5 No Filip pošel do grada glavnogo Samarije i povědal jim o Hristosu.
 6 A narod iměl povagu jedinosmyslno na to, čto Filip govoril, slušajuči i videči čudesa, ktore dělal.
 7 Zato duhy nečiste od mnogyh tyh, ktori je iměli, glasnym glasom izhodili. A mnogo vozduhom porušenyh i hromyh byli uzdravjeni.
 8 I stala se radost velika v ovom gradu.
@@ -295,14 +295,14 @@
 17 Togda vkladali na njih ruky, i oni prijeli Duha Svetogo.
 18 A kogdy Simon viděl, da črěz vkladanje apostolskyh ruk možna polučiti Duha Svetogo, prinesl jim pěnezy.
 19 Kazal: Dajte i mně tu moč, daby jestli na kogo-nebud vložu ruky, prijel Duha Svetogo.
-20 I rěkl mu Petr: Pěneze tvoje da s toboju pogyne, da mysliš, da dar božji može byti kupjeny za pěneze.
+20 I rěkl mu Petr: Pěneze tvoje nehaj s toboju pogynut, da mysliš, da dar božji može byti kupjeny za pěneze.
 21 Ne imaješ v toj věči česti, ni losa, ibo srdce tvoje ne jest prosto prěd licem Božjim.
 22 Itak pokajaj se iz svojej zlosti, i prosi Boga; može byti odpuščeny tvoj zamysl srdca.
 23 Ibo vidžu, čto ty jesi v gorkosti i v zlosti.
-24 Odgovoril togda Simon: Molite se vy za mnoju prěd Gospodinom, daby na mene ničto ne prišlo iz tyh věči, ktore jeste rěkli.
+24 Odgovoril togda Simon: Molite se vy za mnoju prěd Gospodinom, daby na mene ničto ne prišlo iz tyh věčij, ktore jeste rěkli.
 25 A tako oni objavivši i pověděvši slovo Gospodina, vratili do Jeruzalema i v mnogyh gradah Samarytanskyh Evangelije objavili.
 26 No Angel Gospodina rěkl Filipu: Vstani, i idi k poldnju na dragu, ktora od Jeruzalema ide k Gazě, ktora jest pusta.
-27 A on vstal i pošel. A gledaj, muž iz Etiopiji, upravitelj kralice Kandaces, ktory uredžati cěly jej skarby, prišel do Jeruzalema, daby se molil;
+27 A on vstal i pošel. A gledaj, muž iz Etiopiji, upravitelj kralice Kandaces, ktory napravja vse jej skarby, prišel do Jeruzalema, daby se molil;
 28 I vračal, sědeči na vozu svojem, i čital Izaiji proroka.
 29 I rěkl Duh Filipu: Pristupi, i podključaj se tomu vozu.
 30 A priběgl Filip, uslyšal jego čitajučego Izaiji proroka i rěkl: Razuměješ li, čto čitaš?
@@ -314,7 +314,7 @@
 36 A kako jehali po dragě, prijehali k jednoj vodě. Togda rěkl muž: "Gledaj, voda! Čto na prěponě, daby ja ne iměl byti kreščeny?"
 37 I rěkl Filip: "Jestli věriš iz cělogo srdca, volno ti." A on odgovoril: "Věru, da Jezus Hristos jest Syn Božji."
 38 I kazal stanuti vozu; i vstupili oba v vodu, Filip i muž, i pokrestil jego.
-39 A kako izstupili iz vody, shvatil Filipa Duh Gospodnji, i ne viděl jego više muž, ale jehal po svojej dragě, radujuči se.
+39 A kako izstupili iz vody, shvatil Filipa Duh Gospodnji, i ne viděl jego više muž, no jehal po svojej dragě, radujuči se.
 40 A Filip byl najdeny v Azotu, a hodeči kazal Evangelje po vsih gradah, až prišel do Kesarije.
 
 ## Razděl 9
@@ -325,11 +325,11 @@
 4 I padl na zemju, uslyšal glas k sebe govoreči: Saule! Saule! čemu mně goneš?
 5 Togdy rěkl: Kto ty jesi, Gospodine? A Gospod rěkl: Ja jesm Jezus, kogo ty goneš.
 6 A Saul držeči bojal se, rěkl: Gospodine! čto hčeš, daby ja učinil? A Gospodin odgovoril jemu: Vstani, a idi do grada, a tam ti kažut, čto bys iměl činiti.
-7 A muži, ktori s njim byli na putovanju, stali, divili se; glas toliko slyšali, ale nikogo ne viděli.
+7 A muži, ktori s njim byli na putovanju, stali, divili se; glas toliko slyšali, no nikogo ne viděli.
 8 I vstal Saul s zemji, a otvorivši oči svoje, nikogo ne viděl. Togdy vzeli jego za ruku; vedli go do Damaska,
 9 Črěz tri dni ne viděl, i ne jel ni pil.
-10 A byl něktory učenik v Damasku, imenem Ananijas; i rěkl Gospodin jemu v viděnju: Ananijasu! A on rěkl: Tu jesm, Gospodine!
-11 A Gospod rěkl jemu: Vstani, i idi na ulicu, ktoru zovut prostu, a zapytaj v domu Judovym Saula imenem Tarzenika; ibo on se moli.
+10 A byl něktory učenik v Damasku, imenem Ananijas; i rěkl Gospodin jemu v viděnju: Ananijase! A on rěkl: Tu jesm, Gospodine!
+11 A Gospod rěkl jemu: Vstani, i idi na ulicu, ktoru zovut prostu, a zapytaj v domu Judovom Saula imenem Tarzenika; ibo on se moli.
 12 I viděl v viděnju muža, imenem Ananijas, vhodečego i ruku na njego kladučego, daby snova viděl.
 13 I odpověděl Ananijas: Gospodine! Jesm slyšal od mnogyh o tom mužu, kako mnogo zlogo činil svetym tvojim v Jeruzalemu.
 14 I tu ima možnost od najvysših kaplanov, daby vezal vsih pozyvajučyh ime tvoje.
@@ -342,9 +342,9 @@
 21 I divili se vsi, ktori jego slyšali, i govorili: Či to ne jest on, ktory prěslědoval v Jeruzalemu tyh, ktori pozyvali ime togo? I tu prišel, daby jih svezal i vedl do vysokyh svečennikov?
 22 A Saul tym lěpje izstupil i zaměšal Židov, ktori žili v Damasku, dokazyvajuči, da toj jest Hristos.
 23 A kogda prěšlo nemalo dni, izdumali Židi medžu soboju, daby jego ubili.
-24 Ale se dověděl Saul o planah jih. čuvali tož vrata vo dnje i v noči, daby jego ubili.
+24 No se dověděl Saul o planah jih. čuvali tož vrata vo dnje i v noči, daby jego ubili.
 25 A učeniki vzeli jego v noči, spustili jego po povrazu na stěnah grada v košu.
-26 A kogda prišel Saul do Jeruzalema, htěl podključati se učenikom; ale se jego vsi bojali, ne věreči, daby byl tož učenikom Jezusa.
+26 A kogda prišel Saul do Jeruzalema, htěl podključati se učenikom; no se jego vsi bojali, ne věreči, daby byl tož učenikom Jezusa.
 27 No Barnabas vzel jego, privedl jego Apostolom i pověděl jim, kako na dragě viděl Gospodina, da govoril jemu, i kako v Damasku bezstrašno govoril vo imeni Jezusa.
 28 I žil s njimi v Jeruzalemu.
 29 A bezstrašno govoril vo imeni Gospoda Jezusa, govoril i gadal s Grekami; a oni se starali, kako by jego ubiti.
@@ -361,7 +361,7 @@
 40 A Petr izgnavši vsih, kleknul na kolěna i molil se, a obrativši se k ovomu tělu, rěkl: Tabito, vstani! a ona otvorila oči svoje i uzrěvša Petra, sěděla.
 41 A on podavši jej ruku, vozdvignul ju, a kazal do sebe svetyh i vdov, postavil ju živoju.
 42 I proslavilo se to po vsej Joppě, i mnogo jih uvěrilo v Gospodina.
-43 I stalo se, da črěz mnogo dni ostal Petr v Joppě u někakogo Šimona, kožuhara.
+43 I stalo se, da črěz mnogo dni ostal Petr v Joppě u někakogo Simona, kožuhara.
 
 ## Razděl 10
 
@@ -369,19 +369,19 @@
 2 nabožny i bojal se Boga s vsim domom svojim, i čineči milostynje velike ljudu.
 3 A on se vsegda Bogu moleči, viděl javě v viděnju, o devetoj časině v dnju, Angela Božjego, da vstupil do njego i mu rěkl: Kornelije!
 4 A on spěšno na njego žreci, zastrašeny byvši, rěkl: Čto jest, Gospodine? I rěkl mu: Molitvy tvoje i milostynje tvoje vstupili na pamet prěd obličjem Božjem.
-5 I tutčas pošli muži do Joppy, i prizvali Šimona, kogo zovut Petrom.
-6 On ima gostinnost u někakogo Šimona, kožeděla, ktory ima dom nad morjem; on ti pově, čto bys iměl činiti.
+5 I tutčas pošli muži do Joppy, i prizvali Simona, kogo zovut Petrom.
+6 On ima gostinnost u někakogo Simona, kožeděla, ktory ima dom nad morjem; on ti pově, čto bys iměl činiti.
 7 A kogda odšel Angel, ktory govoril s Kornelijem, kazal do sebe dvoh slugov svojih i vojina nabožnogo iz tyh, ktori pri njem byli;
 8 a povědavši jim vse, poslal jih do Joppy.
 9 A zautra, kogda byli v dragě, a približali se do grada, vstupil Petr na strěhu, by se molil okolo časiny šestoj.
 10 A byvši gladny htěl jesti; a kogda mu oni gotovili, pripadlo na njego zahvat.
 11 I uzrěl nebo otvorjeno i stupajuče se sodržnik někaky, kako by platno veliko, za četyri rogy vezano i spuščeno na zemju;
-12 v ktorom byli vse zemne četyrinoge zvěri, i gady i ptaky nebeske.
+12 v ktorom byli vse zemne četyrinoge zvěri, i gadi i ptaki nebeske.
 13 I stal se glas k njemu: Vstani Petre! rěži, i jedi.
 14 A Petr rěkl: Nikako že, Gospodine! ibo jesm někogda ne jel ničto obyčnogo abo nečistogo.
 15 Togdy se snova povtorno stal glas k njemu: Čto Bog očistil, ty ne iměj za nečisto.
 16 Tože se stalo po trikratno. I vzeto směsta sodržnik do neba.
-17 A kogda Petr sam v sobě mněval, čto to bylo za viděnje, ktore viděl, to už byli tu ti muži, ktori byli poslani do Kornelijusa, pytajuči o dom Šimona, stali prěd dverami;
+17 A kogda Petr sam v sobě mněval, čto to bylo za viděnje, ktore viděl, to už byli tu ti muži, ktori byli poslani do Kornelijusa, pytajuči o dom Simona, stali prěd dverami;
 18 I kriknuli, i pytali, či tam Simon, kogo zovut Petrom, tu gostil.
 19 A kogda Petr myslil o ovom viděnju, rěkl jemu Duh: Vot, tebe tri muži iščut.
 20 Itak vstani, a idi s njimi, ničego ne sumněvajuči se, ibo ja jih poslal.
@@ -390,22 +390,22 @@
 23 Tože kazal jih do domu, prijel je v gosti. A drugogo dnja Petr šel s njimi i něktori iz bratov iz Joppy šli s njimi.
 24 A zautra vošli do Kesariji. A Kornelijus čekal jih, pozvavši svojih rodin i blizkyh prijateljev.
 25 I stalo se, kogda vhodil Petr, prišel jemu Kornelijus, pripadl do nogu jego i poklonil se.
-26 Ale go Petr vozdvignul, govoreči: Vstani! I ja tož jesm člověkom.
+26 No go Petr vozdvignul, govoreči: Vstani! I ja tož jesm člověkom.
 27 A razgovarjajuči s njim, vstupil i našel mnogo tyh, ktori byli sobrani.
 28 I rěkl do njih: Vy znate, že ne naleži mužu Židovskomu besědovati s poganom ili posěčati pogana; no mene Bog ukazal, daby ja nikogo člověka ne nazyval čudžim abo nečistym.
 29 Zato jesm tož ne sumněvajuči prišel, pozvany buduči; pytaju togdy, za čego jeste mene pozvali?
 30 A Kornelijus rěkl: Od četvrtogo dnja až do togo časa jesm postil, a o devetoj časině jesm molil se v domu mojem, a vot muž něktory stal prěd mnoju v oděžju jasnoj,
 31 I rěkl: Kornelije! Izslušana jest molitva tvoja, a milostynja tvoja došla na pamet prěd lice Božje.
-32 Zato pošli do Joppy, a prizovi Šimona, ktorogo nazyvajut Petra; on imaje gostincu v domu Šimona, kožuhara, pri morju, ktory prijde, i bude govoriti s toboju.
+32 Zato pošli do Joppy, a prizovi Simona, ktorogo nazyvajut Petra; on imaje gostincu v domu Simona, kožuhara, pri morju, ktory prijde, i bude govoriti s toboju.
 33 Segda jesm poslal k tebe, a ty jesi dobro učinil, da jesi prišel. Nyně jesm vsi prěd licem Božjim svědomi, daby jesmo slyšali vse, čto ti bylo prikazano od Boga.
 34 Togda Petr otvorivši usta, rěkl: Istinno poznaju, že Bog ne gleda na osoby;
-35 Ale v každom narodu, ktory se jego boji i čini spravědlivost, jest jemu prijemno.
+35 No v každom narodu, ktory se jego boji i čini spravědlivost, jest jemu prijemno.
 36 To jest slovo, ktoro Bog poslal synom Izraelskym, oglasil mir črěz Jezusa Hristosa, ktory jest Gospodinom vsih,
 37 Vy znate, čto se stalo po vsej Judeji, počevši od Galileji, poslje kreščenja, ktoro Joan prědpověděl;
 38 Kako Jezusa iz Nazareta pomazal Bog Svetym Duhom i močju; on hodil, čineči dobro i ozdravil vsih ovladnutyh od běsa; ibo Bog byl s njim.
 39 A my jesmo svědkami vsego togo, čto on činil v judejskoj zemji i v Jeruzalemu, ktorogo ubili, pověsivši na drěvu.
 40 Ovogo Bog sbudil tretjego dnja i učinil, daby byl objavjeny;
-41 Ne vsemu narodu, ale svědkam prěd tym izbranym od Boga, nam, kto s njim jel i pil poslje jego vozkrešenja.
+41 Ne vsemu narodu, no svědkam prěd tym izbranym od Boga, nam, kto s njim jel i pil poslje jego vozkrešenja.
 42 I prikazal nam, daby jesmo opověděli narodu i svědčili, da on jest ovym postavjenym od Boga sudjeju živyh i mrtvyh.
 43 Jemu vsi proroki svědočstvo davajut, da črěz jego ime odpuščenje grěhov prijme každy, ktory v njego věri.
 44 A kogda Petr ješče govoril se slova, sošel Svety Duh na vsih slyšečyh slova.
@@ -421,20 +421,20 @@
 3 govoreči: Jesi izšel do mužev neobrězanyh, i jesi jel s njimi.
 4 Togda načevši Petr, pověděl jim redom:
 5 Jesm byl v gradu Joppe, molil se; i jesm viděl v zahvatu viděnje, sodržnik někaky stupajuči se kako platno veliko, za četyri rogy vezano, i spuščeno s neba, i prišlo až do mene.
-6 V ktore spěšno pogledavši, jesm viděl četveronogo zemne zvěri, i gadi, i ptaky nebeske;
+6 V ktore spěšno pogledavši, jesm viděl četveronogo zemne zvěri, i gadi, i ptaki nebeske;
 7 I jesm uslyšal glas govoreči do mene: Vstani, Petre; gledaj, a jedi.
 8 I jesm rěkl: Nikako, Gospodine! ibo nikogda ničto obyčnogo ili nečistogo ne vhodilo v usta moje.
 9 Togda mi odgovoril snova glas s neba: Čto Bog očistil, ty ne iměj to za nečisto.
 10 A to se stalo po tretje i to vse vozdvignulo do neba.
 11 A vot naglo tri muži stanuli prěd domom, v ktorom jesm byl, poslani byli do mene iz Cezariji.
 12 I rěkl mi Duh, aby jesm s njimi šel, ničto ne sumněvajuči. Šli tož so mnoju i ti šest brati, I jesm vstupili do doma ovogo muža;
-13 On nam oglasil, kako viděl Angela v domu svojem govorečego do njego: Pošli mužev do Joppy, a prizovi Šimona, kogo zovut Petrom.
+13 On nam oglasil, kako viděl Angela v domu svojem govorečego do njego: Pošli mužev do Joppy, a prizovi Simona, kogo zovut Petrom.
 14 On ti pově slova, črěz ktore spaseny budeš i cěly dom tvoj.
 15 A kogda jesm počel govoriti, pripadl Duh Svety na nje, kako i na nas na početku.
 16 I jesm spomněl slovo Gospodina, kako On rěkl: Joan krestil vodoju, a vy budete pokreščeni Svetym Duhom.
 17 Kako že jim Bog dal jednakovy dar, kako že i nam, věrečim v Gospodina Jezusa Hristosa, i kto jesm ja, da byh mogl zabraniti Bogu?
 18 Slyšavši to, utišili i hvalili Boga, rěkli: Tož i poganam Bog dal pokajanje k životu.
-19 Ti že, ktori byli razsypani črěz ogorčenje, ktoro se stalo radi Ščepana, došli až do Feničije i Kypra, i do Antiohije, nikomu ne povědajuči slova Božjego, než samym Židam.
+19 Ti že, ktori byli razsypani črěz ogorčenje, ktoro se stalo radi Stepana, došli až do Feničije i Kypra, i do Antiohije, nikomu ne povědajuči slova Božjego, než samym Židam.
 20 A byli něktori muži iz Kypra i iz Kireny, ktori prišli do Antiohije, govorili Grekam, povědajuči o Gospodinu Jezusu.
 21 I byla s njimi ruka Gospodina, i veliko čislo uvěrilo, obratilo se k Gospodinu.
 22 I došla o njih věst do ušij svetilišča, ktoro bylo v Jeruzalemu, i poslali Barnabasa, aby pošel až do Antiohije.
@@ -462,13 +462,13 @@
 11 Togdy Petr prišel, rěkl: Nyně znam pravdivo, že poslal Gospodin Angela svojego i izrval mene iz ruky Heroda i iz vsego očekyvanja naroda židovskogo.
 12 A pametal se, prišel do doma Marije, matere Joana, kogo nazyvali Markom, kde mnogo jih se sobralo i molilo se.
 13 A kogdy Petr stukal pri dverah, vyšla žena, imenom Rode, daby poslušala:
-14 A poznavši glas Petra, od radosti ne otvorila dveri, ale oglasila, da Petr stoji pri dverah.
+14 A poznavši glas Petra, od radosti ne otvorila dveri, no oglasila, da Petr stoji pri dverah.
 15 A oni rěkli jej: Gluposti govoriš! No ona tvrdila, da tako jest. A oni rěkli: Angel jego jest.
-16 Ale Petr ne prěstaval stukati; i kogda otvorili, uviděli jego i divili se.
+16 No Petr ne prěstaval stukati; i kogda otvorili, uviděli jego i divili se.
 17 A mahajuči na njih rukoju, aby molknuli, pověděl jim, kako jego Gospodin izvedl go iz vezenja i rěkl: Kažite to Jakobu i bratam. A izšel, šel na ino město.
 18 A kogda byl den, stal se nemaly nepokoj medžu vojevnikami o to, čto se s Petrom stalo.
-19 Ale Herod, kogda se o njem izpytyval, a ne našel, učinivši sud o stražah, kazal jih ubiti; Potom izšel iz Judejskoj zemji do Cezarii, žil tam.
-20 A Herod srdil se o Tyrijcah i Sidoncah; ale oni jedinosmyslno prišli do njego, a dobyli Blasta, upravitelja kraljevskogo, prosili o mir, ibo krajina jih iměla jedenje iz državy kraljevskoj.
+19 No Herod, kogda se o njem izpytyval, a ne našel, učinivši sud o stražah, kazal jih ubiti; Potom izšel iz Judejskoj zemji do Cezarii, žil tam.
+20 A Herod srdil se o Tyrijcah i Sidoncah; no oni jedinosmyslno prišli do njego, a dobyli Blasta, upravitelja kraljevskogo, prosili o mir, ibo krajina jih iměla jedenje iz državy kraljevskoj.
 21 A jedinogo dnja Herod v paljtu kraljevskom i sěděl na tronu, i učinil rěč jim.
 22 A ljudi kazal: Glas Božji, a ne člověčski!
 23 A v tutom momentu udaril go Angel Gospodnji, ibo ne dal hvaly Bogu, a byvši sjedeny od črvov, umrl.
@@ -481,7 +481,7 @@
 2 A kako oni službu Gospodina javno odpravjali i postili, rěkl jim Duh Svety: Odděljajte mně Barnabasa i Saula do togo děla, do ktorogo jesm jih pozval.
 3 Togdy postili i molili se, i vkladajuči na njih ruky, odpravili jih.
 4 Oni togdy poslani byvši od Duha Svetogo, prišli do Seleuciji, a odtud pluli do Kipra.
-5 A kako byli v Salamisu, povědali slovo Božje v židovskyh synagogah, a iměli s soboju Joana do služby.
+5 A kako byli v Salamisu, povědali slovo Božje v židovskyh synagogah, a iměli so soboju Joana do služby.
 6 A prěsedši ov ostrov až do Pafa, našli tam někakogo čaroděja, falšivogo proroka, Žida, komu ime bylo Barjezus.
 7 On byl pri naměstniku, Sergiju Pavlu, mužu razumnym. Toj prizvavši Barnabasa i Saula, želal slyšati slovo Božje.
 8 No jim se protivil Elymas, čaroděj, (abo se tako izkladaje ime jego), starajuči se, kako by naměstnika od věry odvratil:
@@ -501,12 +501,12 @@
 22 A kogda jego odvrgnul, vozdvignul jim Davida za kralja, komu tož svědočstvo davajuči rěkl: Našel Davida, syna Jesse, muža po srdcu mojemu, ktory bude tvoriti volju moju vo vsim.
 23 Iz jego potomkov Bog po oběčanju dal Izraelju spasitelja Jezusa.
 24 Prěd prihodom kogo Joan kazal kreščenje na pokajanje vsakomu narodu izraelskomu.
-25 A kogda Joan dokončil běg svoj, rěkl: Za kogo mně imate? Ne jesm tym, za ktorogo vy mene imate, ale ide za mnoju, u kogo nog obuvky ne jesm dostojny razvezati.
+25 A kogda Joan dokončil běg svoj, rěkl: Za kogo mně imate? Ne jesm tym, za ktorogo vy mene imate, no ide za mnoju, u kogo nog obuvky ne jesm dostojny razvezati.
 26 Brati, syni naroda Abrahama i vy, ktori medžu vami se Boga bojite, vam slovo spasenja poslano jest.
 27 Ibo ti, ktori živut v Jeruzalemu i jih načelniki, ne znajuči sego Jezusa i glasov prorokov, ktore črěz každu subotu byvajut čitane, izpolnili jih, osudivši jego.
 28 A nikakoj pričiny do smrti v njem ne najduči, prosili Pilata, aby go ubiti.
 29 A kogda izpolnili vse, čto o njem bylo napisano, vzeli jego s drěva, položili jego do groba.
-30 Ale jego Bog vozdvignul iz mrtvyh.
+30 No jego Bog vozdvignul iz mrtvyh.
 31 I viděli Go črěz mnogo dnev ti, ktori s njim razom prišli iz Galileje do Jeruzalema i sut svědkami jego prěd ljudom.
 32 I my vam povědajemo to oběčanje, ktoro se otcam stalo, že jego Bog izpolnil nam, dětam jih, vozbudivši Jezusa.
 33 Kako tož v psalmu vtorom napisano jest: Syn moj jesi ty, ja tebe dnes splodil.
@@ -522,7 +522,7 @@
 43 A po razpuščenju sobranja, pošlo mnogo Židov i nabožnyh novověrnikov za Pavlom i Barnabasom, ktori govorili s njimi, radili jim, aby trvali v laskě božjej.
 44 A v drugu subotu nemalo cěly grad se sobral na slušanje slova božjego.
 45 Togdy Židi videči ljud, napolnjeni byli zavistju i sprotivili se tomu, čto Pavel povědal, govoreči protiv tomu i ogovoreči o tom.
-46 A Pavel i Barnabas, smělo rěkli: Vam najprvo imělo byti povědano slovo Božje; ale ibo jego odvrgajete, a sudite sebe byti nedostojnymi věčnogo života, to vračamo se k poganam.
+46 A Pavel i Barnabas, smělo rěkli: Vam najprvo imělo byti povědano slovo Božje; no ibo jego odvrgajete, a sudite sebe byti nedostojnymi věčnogo života, to vračamo se k poganam.
 47 Ibo nam tako prikazal Pan, govoreči: Jesm sdělal tebe světlom poganov, daby jesi tvoril spasenje až do granice zemji.
 48 A slušajuči to pogani, radovali se i hvalili slovo Gospodina, i uvěrili, koliko jih bylo prigotovjenyh do věčnogo života.
 49 I raznosilo se slovo Gospodina po vsej ovoj krajině.
@@ -533,7 +533,7 @@
 ## Razděl 14
 
 1 I stalo se v Ikoniji, da razom pošli do židovskoj synagogy, i tako govorili, da uvěrilo jim mnogo Židov i Grekov.
-2 Ale Židi, ktori ne uvěrili, srdili se črěz srdca poganov protiv brati.
+2 No Židi, ktori ne uvěrili, srdili se črěz srdca poganov protiv brati.
 3 I byli tam dolgo vrěme, bezpečno govorili v Panu, ktory daval svědočstvo slovu milosrdja svojego i tvoril to, da se děli znamena i čudesa črěz ruky jih.
 4 I razdělila tolpa grada, jedni byli s Židami a drugi s Apostolami.
 5 A kogda buntovali se pogani i Židi s načelnikami svojimi, aby jih maltretovati i kamenovali:
@@ -567,13 +567,13 @@
 2 Črěz to iměli Pavel i Barnabas nemaly spor s njimi, postanovili, aby Pavel i Barnabas i něktori drugi iz njih šli do Apostolov i do starših do Jeruzalema, s radi togo spora.
 3 Oni togdy byli proščani od parafiji, šli črěz Feniciju i Samariju, povědajuči o odvračenju poganov i učinili veliku radost vsim bratam.
 4 A kogda prišli do Jeruzalema, byli prijeti od parafiji i od Apostolov, i starših, i pověděli, čto Bog črěz njih činil.
-5 Ale vstali něktori iz sekty Farizejev, ktori uvěrili, govoreči: Da jih trěba obrězati i prikazati jim, aby hovali zakon Mojzesa.
+5 No vstali něktori iz sekty Farizejev, ktori uvěrili, govoreči: Da jih trěba obrězati i prikazati jim, aby hovali zakon Mojzesa.
 6 Sobrali se togdy Apostoli i starši, aby mysliti o tom dělu.
 7 A kogda byl veliki spor o tom, vstal Petr, rěkl jim: Brati! vy věte, da od davnyh dni Bog mene izbral medžu vami, aby črěz usta moje pogani slušali slovo Evangelja i uvěrili.
 8 A Bog, ktory zna srdca, izdal jim svědočstvo, davši jim Duha Svetogo, kako i nam.
 9 I ne učinil nikakoj raznici medžu nami a njimi, kak věroju očistil srdca jih.
 10 I tak v tutom momentu, za čto pokušate Boga, kladuči jarmo na šiju učenikov, ktorogo ni otci naši, ni jesmo smogli nesti?
-11 Ale črěz milosrdje Gospodina Jezusa Hristosa věrimo, da budemo spaseni tym sposobom, kako i oni.
+11 No črěz milosrdje Gospodina Jezusa Hristosa věrimo, da budemo spaseni tym sposobom, kako i oni.
 12 I molčala cěla tolpa, a slušali Barnabasa i Pavla, ktori pověděli, kako veliki znamena i čudesa činil Bog črěz njih medžu poganami.
 13 A kogda oni molčali, odgovoril Jakob, govoreči: Brati! slušajte mene.
 14 Simon pověděl, kako Bog najprvo prišel do poganov, aby iz njih sdělal narod imena svojego.
@@ -582,9 +582,9 @@
 17 Daby ti, ktori ostali iz ljudij, iskali Gospodina, i vse narody, nad ktorymi prizyvano ime moje, govori Gospodin, ktory to vse čini.
 18 Znane sut od věka vse jego děla Bogu.
 19 Zato moje mněnje jest, daby ne trevožiti tyh, ktori se iz poganov k Bogu odvračajut.
-20 Ale povinno pisati jim, daby se strimali od molitvy do falšivyh bogov i od bluda, i od věčij udušenyh, i od krvi.
+20 No povinno pisati jim, daby se strimali od molitvy do falšivyh bogov i od bluda, i od věčij udušenyh, i od krvi.
 21 Ibo Mojzes od davnyh věkov ima v každom gradu tyh, ktori jego povědajut i jego v synagogah na každu subotu čitajut.
-22 Togda se podobalo Apostolam i staršim i cěloj parafiji, daby izbrani byli muži, i poslati jih do Antiohiji s Pavlom i s Barnabasom, to jest Judasa, ktorogo zvali Barabasom, i Silasa. Muži znamenitymi medžu bratami.
+22 Togda se podobalo Apostolam i staršim i cěloj parafiji, daby izbrani byli muži, i poslati jih do Antiohiji s Pavlom i s Barnabasom, to jest Judasa, ktorogo zvali Barnabasom, i Silasa. Muži znamenitymi medžu bratami.
 23 I dali jim pismo do ruky: Apostoli i starši bratam, ktori sut iz poganov I sut v Antiohiji i v Syrii, i v Kiliciji, zdravja želajemo;
 24 ibo jesmo čuli, da něktori izševše od nas, trevožili vas slovami svojimi, oslabjajuči duši vaše, a govoreči, že trěbujete se obrězati i zakon hovati, čego jesmo jim ne kazali sdělati.
 25 Stalo se nam jedinosmyslno sobranym, poslati do vas mužev izbranyh s milymi našimi, Barnabasom i s Pavlom,
@@ -623,27 +623,27 @@
 14 I něktora žena, imenom Lidija, ktora purpur prodavala v gradu Tjatirskom, Boga boječa se, poslušala; I Gospod otvoril jej srdce, aby spěšno poslušala to, čto Pavel govoril.
 15 I kako se pokrestila ona i dom jej, prosila, govoreči: Kak mně jeste posudili věrnoju byti Gospodinu. Prijdite do doma mojego žiti; i prinudžala nas.
 16 I stalo se, kogdy jesmo pošli na molitvu, da něktora děvka, ktora iměla duha jasnovidca i svojim gospodinam prinosila veliku lihvu, běgala nam.
-17 Ta hodeči za Pavlom i za nami, kazala, govoreči: „Ti ljudi sut slugami Boga Najvysšego, ktori nam povědajut put izbavjenja.“
-18 A to činila črěz mnogo dni; ale Pavel srdil se nad tym i rěkl ovomu duhu: „Prikažu ti v imeni Jezusa Hristosa, aby ty izšel iz nje.“ I izšel v ovoj že časině.
+17 Ta hodeči za Pavlom i za nami, kazala, govoreči: Ti ljudi sut slugami Boga Najvysšego, ktori nam povědajut put izbavjenja.
+18 A to činila črěz mnogo dni; no Pavel srdil se nad tym i rěkl ovomu duhu: Prikažu ti v imeni Jezusa Hristosa, aby ty izšel iz nje. I izšel v ovoj že časině.
 19 A viděli gospodini jej, da izgynula naděja lihvy jih, pojmavši Pavla i Silasa, tegnuli jih na trg prěd ured,
-20 A postavivši jih prěd uredom, rěkli: „Ti ljudi činet zaměšanje v našem gradu, buduči Židami:
-21 I povědajut obyčaje, ktoryh se nam ne godi prijmati i ne zahovati, ibo jesmo Rimjanami.“
+20 A postavivši jih prěd uredom, rěkli: Ti ljudi činet zaměšanje v našem gradu, buduči Židami:
+21 I povědajut obyčaje, ktoryh se nam ne godi prijmati i ne zahovati, ibo jesmo Rimjanami.
 22 I vstal narod protiv njim, a ured kazali jim razdrti oděž jih, bičevati rozgami.
 23 A kogdy jim mnogo ran zadali, kydnuli jih do vezenja, kazali vezenskoj straži, aby jih dobro strěgl.
 24 Ibo prijel taky razkaz, vsadil jih do najglubšego vezenja, a nogy jih zaključil v kladě.
 25 A o polnoči Pavel i Silas molili se, hvalili Boga pěsnjami, tako že jih slyšali vezni.
 26 I stalo bystro veliki zemjetresenje, da se porušili zemja vezenja, i v tutom momentu se otvorili vse dveri, i vsih byli voljni.
 27 A probudivša se vezenska straža i uzrěvša otvorjene dveri u vezenja, iztegnul meč, I htěl sam sebe ubiti, mněvajuči, da vezni utekli.
-28 Ale Pavel kriknul glasom velikym, govoreči: „Ne čini sobě ničego zlogo: ibo jesmo tu.“
+28 No Pavel kriknul glasom velikym, govoreči: Ne čini sobě ničego zlogo: ibo jesmo tu.
 29 A prikazavši zasvětiti, vpadl tam, a držeči se pripadl k nogam Pavla i Silasa:
-30 A izvedši jih iz vezenja, rěkl: „Gospodine! Čto imam činiti, byh byl izbavjeny?“
+30 A izvedši jih iz vezenja, rěkl: Gospodine! Čto imam činiti, byh byl izbavjeny?
 31 A oni rěkli: Věri v Gospodina Jezusa Hristosa, i budeš spaseny, ty i tvoj dom.
 32 I pověděli jemu slovo Gospodina i vsim, ktori byli v domu jego.
 33 A vzel jih v ovoj časině v noči do sebe, omyl rany jih i dal sebe pokrestiti i cěly dom jego.
 34 A vvedši jih do domu svojego, gotovil jim jedu i veselil se so vsim domom svojim, uvěrivši Bogu.
 35 A kogdy byl den, poslal načelnik grada slugi suda, govoreči: Izpustite ovyh ljudij.
 36 I oglasila straža te slova Pavlu, da načelnik grada poslal, aby byli izpuščeni: izojdite, idite v pokoju.
-37 Ale jim Pavel rěkl: bičevali nas javno rozgami ne osudženyh, hot jesmo Rimjanami, kydnuli do temnice; a tutčas nas tiho izganjajut? Ničto iz togo; ale sami nehaj prijdut i izvedut nas.
+37 No jim Pavel rěkl: bičevali nas javno rozgami ne osudženyh, hot jesmo Rimjanami, kydnuli do temnice; a tutčas nas tiho izganjajut? Ničto iz togo; no sami nehaj prijdut i izvedut nas.
 38 Togdy pověděli načelniku grada slugi suda te slova. I bojali se, uslyšavši, da byli Rimjanami.
 39 A prišli, poprosili jih, a izvedši jih, prosili jih, aby izšli iz grada.
 40 Izševši že iz temnice, pošli do doma Lidiji. Posěčajuči bratov, utěšili jih i odšli.
@@ -654,16 +654,16 @@
 2 Togda Pavel po svojemu obyčaju všel do njih, i črěz tri suboty kazal jim iz Pisma.
 3 Pokazal to, da Hristos iměl stradati i vstati od mrtvyh, i da Jezus jest Hristosom, o ktorom ja vam povědam.
 4 I uvěrili něktori iz njih, podključili se Pavlu i Silasu, i tož velika tolpa nabožnyh Grekov, i žen dvorjanskyh nemalo.
-5 Ale Židi, ktori ne uvěrili, iměli zavist, vzeli k sobě něktoryh legkomyslnyh i zlyh mužev, a sobravši gromadu učinili razdor v gradu. Prišli do doma Jazona, iskali jih, aby jih izvedli prěd ljud.
+5 No Židi, ktori ne uvěrili, iměli zavist, vzeli k sobě něktoryh legkomyslnyh i zlyh mužev, a sobravši gromadu učinili razdor v gradu. Prišli do doma Jazona, iskali jih, aby jih izvedli prěd ljud.
 6 A ne našli jih, tegnuli Jazona i něktoryh bratov do starših grada, kriknuli: "Vot ti, ktori cěly grad razčulili, i tu tož prišli;
 7 I tyh prijel Jazon; a ti vsi činet protiv carskyh dekretov, povědajuči, da jest iny car, Jezus."
 8 A tako razčulili prosty ljud i starših grada, ktori to slyšali.
-9 Ale kogdy prijeli dostatočne zaručenje od Jazona i od inyh, pustili jih.
+9 No kogdy prijeli dostatočne zaručenje od Jazona i od inyh, pustili jih.
 10 A brati skoro v noči poslali Pavla i Silasa do Berei; Kogdy oni tam prišli, vošli do židovskoj synagogy.
 11 A oni byli bolje dvorjanski než ti, ktori byli v Fesaloniki, ktori prijeli slovo Božje s vsimi radostami, v každy den čitali Pismo, či ono tož tak mysli.
 12 Zato mnogo jih iz njih uvěrilo, i tož greckyh žen dvorjanskyh i mužev nemalo.
 13 A kogda Židi iz Fesaloniki se dověděli, čto v Berei povědano bylo slovo Božje od Pavla, prišli tudy, podstrěknuli prosty ljud.
-14 Ale brati skoro poslali Pavla, aby šel do morja; a Silas i Timoteus tam ostali.
+14 No brati skoro poslali Pavla, aby šel do morja; a Silas i Timoteus tam ostali.
 15 A ti, ktori vodili Pavla, provodili go až do Atena, a cělo prikazanje do Sila i do Timoteusa, aby čim skorěje prišli do njego, odšli.
 16 I poka Pavel čekal na njih v Atenah, jego duh v njim se porušil, ibo viděl ov grad oddany osvečanju falšivyh bogov.
 17 I tako on iměl razgovory s Židami i s nabožnymi ljudami, v synagogě i na trgu v každy den.
@@ -679,9 +679,9 @@
 27 Aby iskali Gospodina, aby jego čuli i našli, hot od každogo iz nas ne jest daleko.
 28 Ibo v njem živemo i divimo se, i jesmo, kako i něktori iz vaših poetov pověděli: Jesmo i jesmo rodinoju jego.
 29 Byvši takoju rodinoju Božja, ne imamo mysliti, aby on byl podobny zlatu abo srěbru, abo hudožstvo ljudskomu, abo izmyslu člověčskomu.
-30 Tako prěgledal Bog časy toj nevědomosti, ale tutčas oglasi ljudam vsim vesde, aby pokajali se;
+30 Tako prěgledal Bog časy toj nevědomosti, no tutčas oglasi ljudam vsim vesde, aby pokajali se;
 31 Iže on ustanovil den, v ktorom on bude sudil cěly svět v spravědlivosti po mužu, kogo on naznačil na to. Aby každy o tom uvěril, vozkresil jego od mrtvyh.
-32 A uslyšavši o vozkrešenju, jedni se zasmějali, a drugi govorili: „Budemo te snova o tom slušati.“
+32 A uslyšavši o vozkrešenju, jedni se zasmějali, a drugi govorili: Budemo te snova o tom slušati.
 33 I tako Pavel izšel iz srědišča jih.
 34 A něktori muži podključali se jemu i uvěrili, medžu ktorymi byl Dionizijus Areopagit i žena imenom Damara i drugi s njimi.
 
@@ -695,19 +695,19 @@
 6 A kogda oni protivrěkli i ogovorili, držal prah iz oděži, rěkl jim: Krov vaša prijde na glavu vašu; ja jesm čisty, od togo času pojdu k poganam.
 7 A odvedši odtud vstupil do doma někakogo člověka, imenom Justus, služečego Bogu, čijego dom byl blizko synagogy.
 8 A Krispus, starši synagogy, uvěril v Gospodina s cělym domom svojim, i mnogo iz Korinta slušajuči, uvěrili i byli pokreščeni.
-9 Potom Gospodin rěkl Pavlu v noči v viděnju: Ne boj se, ale govori, i ne molči.
+9 Potom Gospodin rěkl Pavlu v noči v viděnju: Ne boj se, no govori, i ne molči.
 10 Ibo ja jesm s toboju, i nikto ne bude tknuti tebe, aby ti zlo učiniti; ibo ja imam veliki narod v tom gradu.
 11 I žil tam god i šest měsecev, učil u njih slovo Božje.
 12 A kogda Galion byl načelnikom grada v Achaji, vstali jedinosmyslno židi protiv Pavlu i privedli jego k sudu, govoreči:
 13 On podgovori ljudij, aby protiv zakonam Boga hvalili.
 14 A kogda Pavel iměl usta otvoriti, rěkl Galion k židam: O židi! Kogdy by se vam  prěstupjenje stalo, abo krivda, pravedno by ja vas slušal;
-15 Ale jestli jest někaky spor o slovah i o imenah i o zakonu vašem, sami togo razrěšite; ibo ja ne hču byti sudjeju togo.
+15 No jestli jest někaky spor o slovah i o imenah i o zakonu vašem, sami togo razrěšite; ibo ja ne hču byti sudjeju togo.
 16 I izgnal on jih od sudje trona.
 17 Togdy hvatili vsi Sostena, starějšego synagogy, bili jego prěd tronom sudje, a Galion ne dbal za ničto.
 18 A Pavel pobivši tam ješče několiko dnev, proščavši se s bratami, odplul do Syrije, a s njim Priskilla i Akvila, strigl svoju glavu v Kenchrejah, ibo učinil zarok.
 19 Potom prišel do Efeza i tam jih ostavil, a sam vhodil do synagogy, iměl razgovor s Židami.
 20 A kogda jego prosili, aby u njih na dolžejši čas pobyl, ne htěl;
-21 Ale proščavši se s njimi, rěkl: Vratim, jestli bude taka Božja volja. I odplul iz Efeza.
+21 No proščavši se s njimi, rěkl: Vratim, jestli bude taka Božja volja. I odplul iz Efeza.
 22 A kogda prišel do Cesarije, vhodil do Jeruzalema i pozdravivši crkvu, šel do Antiohije.
 23 I pobyvši tam něktory čas, izšel obhodivši Galatsku zemju i Frygiju, potvrdžajuči vsih učenikov.
 24 A Žid někaky imenom Apollos, rodom iz Aleksandrije, muž zlatousty, prišel do Efeza. Byl silny v Pismah.
@@ -732,7 +732,7 @@
 12 Tak že horam prinosili tkaniny od těla jego, i odšli od njih hvoroby, i duhi zli izhodili iz njih.
 13 Togdy něktori iz čarodějev židovskyh, ktori bavili se zaklinanjem, važili se izzvati ime Gospodina Jezusa nad tymi, ktori iměli duhy zle, govoreči: Zaklinujem vas črěz Jezusa, ktorogo Pavel pověda.
 14 A bylo jih sedm synov, ovogo žida, imenem Skevas, največšego kaplana, ktori to činili.
-15 Togdy odgovoril duh zly: Znam Jezusa i znam Pavla; ale vy kym jeste?
+15 Togdy odgovoril duh zly: Znam Jezusa i znam Pavla; no vy kym jeste?
 16 I kydnul se na njih človek, v ktorom byl zly duh, i sovladyval njih, posilil se protiv njimi, tako že nagi i ranjeni izběgli iz ovogo domu.
 17 I bylo to vědomo vsim, i Židam i Grekam, ktori žili v Efezu; i pripadl strah na njih vsih, i bylo proslavjeno ime Gospodina Jezusa.
 18 I mnogo iz tyh, ktori uvěrili, prihodili, priznali i izvěstovali svoje děla.
@@ -743,15 +743,15 @@
 23 A v tutom času stalo se nemalo bunt okolo Božjej dragě.
 24 Ibo něktory koval zlata, imenem Demetrijus, ktory dělal srěbrne crkvi Dijany, nemalu lihvu privodil remeslnikam;
 25 On sobral jih i inyh, ktori takože remeslo dělali, rěkl: Muži! Věte, da iz togo remesla mamo naše lihvy.
-26 A vidite i slyšite, da ne toliko v Efezu, ale malo ne po vsej Aziji toj Pavel podgovoril i odvratil velike ljudy, govoreči: To ne sut bogi, ktori sut rukami učinjeni.
-27 Ne toliko naše remeslo v legko uvažanje prijde, ale da i crkva velikoj bogyni Dijany za ničto ne bude uvažany. Prijde do pogoršenja dostojenstvo jej, ktoru vsaka Azija i ves svět hvali.
+26 A vidite i slyšite, da ne toliko v Efezu, no malo ne po vsej Aziji toj Pavel podgovoril i odvratil velike ljudy, govoreči: To ne sut bogi, ktori sut rukami učinjeni.
+27 Ne toliko naše remeslo v legko uvažanje prijde, no da i crkva velikoj bogyni Dijany za ničto ne bude uvažany. Prijde do pogoršenja dostojenstvo jej, ktoru vsaka Azija i ves svět hvali.
 28 A slušate to i byvajuči polni gněva, kriknuli, govoreči: Velika jest Dijana Efeska!
 29 I bylo polno po vsem gradu zaměšanje, i vpadli jednoglasno na teatr, odnesli Gaja i Aristarha, Makedoncev, tovariši putovanja Pavla.
 30 A kogda Pavel htěl vstupiti do naroda, ne dopustili mu učeniki.
 31 I něktori tož od važnějših mužev Azijskyh, byli jego prijateljami, poslavši do njego. Prosili jego, daby ne vhodil do teatra.
 32 Togdy jedni tak, a drugi inače kriknuli; ibo to sobranje bylo zaměšano, a više jih ne vědělo, po čemu se sobrali.
 33 A od togo sbora iztegnuli Aleksandra, kogo phnuli Židi; a Aleksander mahnuvši rukoju, htěl dati odgovor ljudam.
-34 Ale kogda poznali, da byl Židom, počel se jednostajny glas od vsih. Kriknuli črěz dvě časiny: Velika jest Dijana Efeska!
+34 No kogda poznali, da byl Židom, počel se jednostajny glas od vsih. Kriknuli črěz dvě časiny: Velika jest Dijana Efeska!
 35 Togdy pisatelj grada uspokajal to sobranje i rěkl: Muži Efeski! I kde jest člověk, ktori by ne znal, da grad Efesky opekaje se o crkvi velike bogyni Dijany, ktora jest dočerju Jupitera?
 36 Tomu nikto se ne može protiviti. Trěba, da byste se uspokojili, a ničto naglo ne činili.
 37 Ibo jeste privedli tyh mužev, ktori ne sut ni světokradcami, ni bogohulnikami vašej bogynji.
@@ -814,7 +814,7 @@
 10 I kogda jesmo tam črěz nemalo dnev žili, prišel iz Judejskoj zemje prorok něktory, imenom Agabuš.
 11 Toj priševši do nas i vzevši pas Pavla, i svezavši sobě ruky i nogy, rěkl: To govori Duh Svety: Muža, čijego jest toj pas, svežut v Jeruzalemu Židi i podadut jego v ruky poganam.
 12 I kogda jesmo to uslyšali, jesmo prosili tyh, ktori na tom městu byli, aby on ne hodil do Jeruzalema.
-13 Togda odgovoril Pavel: Čto tvorite plačuči i srdce mi kazeči? Ibo ja ne toliko gotovy svezany byti, ale i umrti jesm gotovy v Jeruzalemu za imene Gospodina Jezusa.
+13 Togda odgovoril Pavel: Čto tvorite plačuči i srdce mi kazeči? Ibo ja ne toliko gotovy svezany byti, no i umrti jesm gotovy v Jeruzalemu za imene Gospodina Jezusa.
 14 I kogda on ne dal se podgovoriti, jesmo dali pokoj, govoreči: Nehaj se stane volja Gospodina.
 15 I po tyh dnjah, vzevši věči svoje, jesmo pošli do Jeruzalema.
 16 I pošli s nami něktori učeniki iz Cezarije, veduči s soboju togo, u kogo jesmo iměli gostiti, někakogo Mnazona Ciprijca, starogo učenika.
@@ -822,7 +822,7 @@
 18 A zautra Pavel pošel s nami do Jakoba, kde sobrali se vsi starši.
 19 Jih pozdravivši, izpověděl jim vse, čto Bog učinil medžu poganami črěz službu jego.
 20 Čto oni slyšavši, hvalili Gospodina i rěkli jemu: Vidiš, brate! kako jest mnogo tyseč Židov, ktori uvěrili; a vsi ti gorlivi sut za zakon.
-21 Ale o tobě slušali, da odvodiš od Mojzesa vsih tyh Židov, ktori sut medžu poganami, govoreči, da ne imajut obrězati dětij, ni imajut hoditi po zakonnyh obyčajah.
+21 No o tobě slušali, da odvodiš od Mojzesa vsih tyh Židov, ktori sut medžu poganami, govoreči, da ne imajut obrězati dětij, ni imajut hoditi po zakonnyh obyčajah.
 22 Čto jest? Nužno jest, da se sobral narod; ibo uslyšet, da jesi prišel.
 23 A itak čini to, čto ti govorimo; imajemo tu četyri mužev, ktori na sobě prisegu imajut;
 24 tyh vzevši do sebe, očisti se s njimi i učini naklad na njih, da ogolet glavy; a poznajut vsi, da to, čto o tobě slyšali, falšive jest, čto ty sam  zakon držiš.
@@ -847,13 +847,13 @@
 
 1 Brati i otci! Slušajte moju obranu, ktoru ja nyně vam pověm.
 2 A kogdy uslyšali, da jim govoril židovskym jezykom, tym se ješče bolje utišali. I rěkl:
-3 Ja jesm muž Židom, rodženy v Tarsusě Cilickym, ale vozpitany v tom gradu pri nogah Gamalijelovyh, učeny dostatočno v zakonu otcevskom. Jesm byl gorlivy za zakon, kako vy vsi dnes jeste.
+3 Ja jesm muž Židom, rodženy v Tarsusě Cilickym, no vozpitany v tom gradu pri nogah Gamalijelovyh, učeny dostatočno v zakonu otcevskom. Jesm byl gorlivy za zakon, kako vy vsi dnes jeste.
 4 Jesm prěslědoval tu dragu až do smrti, vezal i prědaval do vezenja mužev i ženy,
 5 Mi najvysši kaplan jest svědkom i vsi starši, od ktoryh tož jesm listy polučil, jesm jehal do Damaska do bratov, da byh tyh, ktori tam byli, svezal i privedl do Jeruzalema, daby byli karani.
 6 I stalo se, kogdy jesm jehal i se približal do Damaska okolo poludnja, da naglo obsegnula mene světlo veliko s neba.
 7 I jesm upadl na zemju, uslyšal glasa, ktory govoril k mně: Saule! Saule! Čemu mene prěslěduješ?
 8 A ja jesm odgovoril: Kto jesi, Gospodine? I rěkl k mně: Ja jesm Jezus Nazarejsky, ktorogo ty prěslěduješ.
-9 A ti, ktori byli s mnoju, viděli světlo i prěstrašili se, ale glasa ne slyšali ovogo, ktory s mnoju govoril.
+9 A ti, ktori byli s mnoju, viděli světlo i prěstrašili se, no glasa ne slyšali ovogo, ktory s mnoju govoril.
 10 I jesm rěkl: Čto imam učiniti, Gospodine? A Gospodin rěkl k mně: Vstani; idi do Damaska, a tam ti kažut o vsem, čto jest rěšeno, da bys ty učinil.
 11 A kogdy jesm byl slěpy iz povoda jasnosti světa ovogo, ti ktori byli s mnoju, vzeli mene za ruku i tak jesm prišel do Damaska.
 12 Tam někaki Ananijas, muž nabožny zakonu, imaje svědočstvo od vsih Židov tam živučih,
@@ -864,7 +864,7 @@
 17 I stalo se potom, kogda jesm se vratil do Jeruzalema, i molil se v crkvi, da jesm byl v zahvatu.
 18 I jesm viděl jego govorečego do mene: Spěši se; i izojdi skoro iz Jeruzalema, ibo svědočstva tvojego ne prijmut o mně.
 19 A jesm rěkl: Gospodine! oni vědut, da jesm ja podaval do vezenja i bil v synagogah tyh, ktori dověrjali v tebe.
-20 I kogda izlivali krov Ščepana, svědka tvojego, jesm tož pri tom stal i dopustil na ubitje jego, i strěgl šaty tyh, ktori jego ubivali.
+20 I kogda izlivali krov Stepana, svědka tvojego, jesm tož pri tom stal i dopustil na ubitje jego, i strěgl šaty tyh, ktori jego ubivali.
 21 I rěkl do mene: Idi že, ibo tebe do poganov daleko poslju.
 22 A slušali jego až do togo slova; i vozdvignuli glas svoj, govoreče: Von iz zemji s takym; ibo ne pravo, aby iměl žiti.
 23 A kogda oni kričali i metali šaty i prah v vozduh,
@@ -885,7 +885,7 @@
 5 A Pavel rěkl: Ne jesm věděl, brati! Da on jest vysšim svečennikom; ibo jest napisano: Zastupnika naroda tvojego ne budeš rušiti.
 6 A poznavši Pavel, da jedna čest iz njih byla Saducejami a druga Farizejami, kazal v toj radě: Brati! Ja jesm Farizejem, syn Farizeja: za naděju i  vozkrešenje mrtvyh tu dnes mene sudet.
 7 A kogda on to govoril, počel se spor medžu Farizejami i Saducejami, i razdělila se ta tolpa.
-8 Ibo Saduceji govoret, da ne jest vozkrešenja, ni Angela, ni duha; ale Farizeji to oboje iznajmut.
+8 Ibo Saduceji govoret, da ne jest vozkrešenja, ni Angela, ni duha; no Farizeji to oboje iznajmut.
 9 I počel se krik veliky. A povstali učitelji Pisma od strony Farizejev, sporili se, govoreči: Ničego zlogo ne jesmo našli v tom člověku; i jestli by mu to rěkl duh ili Angel, ne borimo se s Bogom.
 10 A kogda se počel veliky spor, boječi se hetman, aby Pavla medžu soboju ne razdrli, pověděl idti vojinam na dol, a hvatiti jego iz srědiny jih i odvesti do lagera.
 11 A v drugoj noči stanuvši pri njem Gospodin, rěkl: Budi dobrogo srdca, Pavle! Ibo kako ty o mně svědčil v Jeruzalemu, tako trěba tobě svědčiti i v Rimu.
@@ -898,7 +898,7 @@
 18 I tak on vzevši jego, vedl jego do hetmana i rěkl: Pavel, zaključilnik, prosil, byh ja togo mladenca privedl do tebe, ktory imaje něčto povědati.
 19 Togda hetman vzevši jego za ruku i ustupivši na stranu, pytal go: Čto to jest, čto mi imaš povědati?
 20 A on rěkl: Postanovili Židi prositi tebe, aby jesi zautra izvedl Pavla prěd radu, kako by oni htěli čego dostatočnějšego dovědati o njem.
-21 Ale ty ne dopusti jim togo; ibo tam čekajut bolje než četyrdeset mužev, ktori prisegnuli, da ne imajut ni jesti ni piti, až by jego ubili; i sut uže v gotovosti, čekajuči od tebe odpovědi.
+21 No ty ne dopusti jim togo; ibo tam čekajut bolje než četyrdeset mužev, ktori prisegnuli, da ne imajut ni jesti ni piti, až by jego ubili; i sut uže v gotovosti, čekajuči od tebe odpovědi.
 22 Togda hetman odpustil ovogo mladenca, prikazavši mu, aby togo prěd nikom ne pověděl, da on mu to skazal.
 23 A pozvavši dvoh něktoryh iz polkovnikov, rěkl: Prigotovite dvěstě vojakov, aby šli až do Cesarije; do togo sedmdeset jezdcev i dvěstě vojakov s kopijeju na tretju časinu v noči;
 24 Prigotovite tož govedo, aby vsadivši Pavla na nje, zdravo jego provedli do Feliksa naměstnika;
@@ -919,7 +919,7 @@
 1 I po peti dnjah prišel vrhovny svečennik Ananijas s staršimi i s Tertullom, někakym govoriteljem, ktori stanuli prěd naměstnikom protiv Pavlu.
 2 A kogdy byl pozvany, načel na njego žalovati Tertullus, govoreči:
 3 Navet my velikogo pokoja dostignuli i mnogo se dobrogo tomu narodu stalo prěz tvoju opeku, vsegda i vesde to s velikym dekovanjem priznajemo, velomožny Felikse!
-4 Ale že by ja tebe dolgo ne sodržali, prošu, bys nas kratko poslušal po tvojej milosrdju.
+4 No že by ja tebe dolgo ne sodržali, prošu, bys nas kratko poslušal po tvojej milosrdju.
 5 Navet jesmo iznašli togo muža kako čuma i tvoritelja buntov medžu vsimi Židami po cělom sveti, i načelnika toj sekty Nazarejcev.
 6 On proboval tož oskvrniti crkvu; jesmo go hvatili i po našemu zakonu htěli suditi.
 7 Togdy prišel hetman Lizijas s velikoj močju, vzel jego iz ruk naših.
@@ -949,18 +949,18 @@
 1 I kogda Festus, prijel v gubernatorstvo, po treh dnjah prišel do Jeruzalema iz Cezareje.
 2 I stanuli prěd njim najvysši svečenniki i glavnějši od Židov protiv Pavlu, i prosili jego,
 3 daby on učinil lasku protiv njemu, daby on kazal privesti jego do Jeruzalema, učinivši atak, by jego ubili na dragě.
-4 Ale Festus rěkl: „Pavel jest pod stražeju v Cezareji, a ja sam tudy skoro pojdu.“
-5 „Kto iz vas jest dostatočny,“ rěkl on, „nehaj ide s nami; a jestli jest někaka vina v tom mužu, nehaj žalujut na njego.“
+4 No Festus rěkl: Pavel jest pod stražeju v Cezareji, a ja sam tudy skoro pojdu.
+5 Kto iz vas jest dostatočny, rěkl on, nehaj ide s nami; a jestli jest někaka vina v tom mužu, nehaj žalujut na njego.
 6 A byvavši u njih ne bolje než deseti dnev, on odjehal do Cezareje, a zautra sěděvši na tronu suda, kazal Pavla privesti.
 7 I kogdy on prišel, obstupili jego ti Židi, ktori prišli iz Jeruzalema, prinesli mnogo i težkyh žalob protiv Pavlu, ktoryh dokazati ne mogli;
-8 kogda on daval odgovor o sobě: „Jesm ni protiv židovskomu zakonu, ni protiv crkvi, ni protiv cěsaru ničego ne sgrěšil.“
-9 Ale Festus hčuči sobě dostati lasku u Židov, odgovoril Pavlu: „Hčeš li idti do Jeruzalema, a tam o tyh věčah byti sudženy prěd mnoju?“
-10 Ale Pavel rěkl: „Prěd carskym sudom stoju, kde mene suditi trěba; Židov ja v ničem ne krivdil, kako i ty bolje znaš.
-11 Ibo jestli jesm v čem ne pravy i čto zasluživajuče smrti učinil, ne odkažu se umrti; ale jestli ne jest ničego takogo iz tyh věči, o ktoryh na mně se žalujut, nikto mene jim izdati ne može; apeluju do cěsara.“
-12 Togdy Festus posovětovavši se s radoju, odvětoval: „Do cěsara jesi apeloval? Do cěsara pojdeš!“
+8 kogda on daval odgovor o sobě: Jesm ni protiv židovskomu zakonu, ni protiv crkvi, ni protiv cěsaru ničego ne sgrěšil.
+9 No Festus hčuči sobě dostati lasku u Židov, odgovoril Pavlu: Hčeš li idti do Jeruzalema, a tam o tyh věčah byti sudženy prěd mnoju?
+10 No Pavel rěkl: Prěd carskym sudom stoju, kde mene suditi trěba; Židov ja v ničem ne krivdil, kako i ty bolje znaš.
+11 Ibo jestli jesm v čem ne pravy i čto zasluživajuče smrti učinil, ne odkažu se umrti; no jestli ne jest ničego takogo iz tyh věči, o ktoryh na mně se žalujut, nikto mene jim izdati ne može; apeluju do cěsara.
+12 Togdy Festus posovětovavši se s radoju, odvětoval: Do cěsara jesi apeloval? Do cěsara pojdeš!
 13 A po několiko dnjah, kralj Agripa i Bernike prišli do Cezareje, privitati Festa.
-14 A po nemalo dnjah, Festus položil prěd kralja dělo Pavla, govoreči: „Někaky muž ostavjeny jest od Feliksa v vezenju.
-15 Iz povoda jego, kogda jesm byl v Jeruzalemu, stanuli prěd mnoju najvysši svečenniki i starši židovski, proseči o dekret protiv njemu.“
+14 A po nemalo dnjah, Festus položil prěd kralja dělo Pavla, govoreči: Někaky muž ostavjeny jest od Feliksa v vezenju.
+15 Iz povoda jego, kogda jesm byl v Jeruzalemu, stanuli prěd mnoju najvysši svečenniki i starši židovski, proseči o dekret protiv njemu.
 16 Na to jesm jim odgovoril, da ne jest obyčaj pri Rimjanah, aby kakogo člověka izdali na smrt, až obvinjeny ne iměje prěd soboju tyh, ktori na njego se žalujut, i ne bude mu dano možlivosti odgovoriti na to, v čem jego obvinjajut.
 17 I tako, kogda se tu sobrali, směsta v nastupnom dnju sěděvši v sudu, jesm kazal privesti togo muža.
 18 Ti protiv njego ne žalovali se nikakoj viny o njem, kak jesm očekyval.
@@ -991,23 +991,23 @@
 13 v poldnju, v dragě buduči, jesm viděl, o kralju! světlo iz neba, jasnějše nad jasnostju solnca, ktoro osvětilo mene i tyh, ktori jehali so mnoju.
 14 A kogdy jesmo vsi upadli na zemju, jesm uslyšal glasa govoreči do mene i govoreči židovskym jezykom: Saule! Saule! Po čto jesi prěslěduješ? Trudno tobě protiv bodcev izbivati.
 15 A jem rěkl: Kto jesi, Gospodine? A on rěkl: Jesm Jezus, kogo ty prěslěduješ.
-16 Ale vstani i stoj na nogah tvojih; ibo jesm se tobě pokazal, da byh učinil te slugoju i svědkom tako toj věči, ktoroj jesi viděl, kako i drugyh, v ktoryh se tobě pokažu.
+16 No vstani i stoj na nogah tvojih; ibo jesm se tobě pokazal, da byh učinil te slugoju i svědkom tako toj věči, ktoroj jesi viděl, kako i drugyh, v ktoryh se tobě pokažu.
 17 oddělju tebe od togo naroda i od poganov, do ktoryh te nyně posylaju,
 18 Da bys otvoril oči jih, daby se obratili od tmy do světla, a od oblasti djabolskoj do Boga, daby tako prijeli odpuščenje grěhov i naslědstvo posrěd svetyh črěz věru v mene.
 19 Zato, o kralju Agripo! Jesm byl pokorny tomu nebeskomu javjenju.
-20 Ale najprvo tym, ktori sut v Damasku i v Jeruzalemu, i vo vsej zemji židovskoj, i poganam jesm povědal, daby pokajali se i obratili se do Boga, čineči děla dostojne pokajanja.
+20 No najprvo tym, ktori sut v Damasku i v Jeruzalemu, i vo vsej zemji židovskoj, i poganam jesm povědal, daby pokajali se i obratili se do Boga, čineči děla dostojne pokajanja.
 21 Za te věči Židi v crkvi mene pojmavši, htěli mene ubiti.
-22 Ale za pomočju Božju ješče do dnešnjego dnja stoju, svědčeči i malomu, i velikomu, ničto ne govoreči kromě togo, čto povědali proroki i Mojzes, da se imělo stanuti;
+22 No za pomočju Božju ješče do dnešnjego dnja stoju, svědčeči i malomu, i velikomu, ničto ne govoreči kromě togo, čto povědali proroki i Mojzes, da se imělo stanuti;
 23 To jest, da Hristos iměl stradati, a byvši prvym od vozkrešenja povědati iměl světlo narodu tomu i poganam.
 24 Ibo on to v obraně svojej pověděl, rěkl Festus glasom velikym: Šalěješ, Pavle! Velika nauka privodi te do šalěnja.
-25 Ale on rěkl: Ne šalěju, najsilnějši Feste! Ale istinne i zdrave slova povědaju.
+25 No on rěkl: Ne šalěju, najsilnějši Feste! No istinne i zdrave slova povědaju.
 26 Vědě i kralj o tyh věčah, prěd ktorym bezstrašno govorju, ibo ne myslju, daby něčto iz tyh věčij u njego bylo tajno. Ibo to se ne v kutu dělalo.
 27 Věriš, kralju Agripo, prorokam? Věm, da věriš.
 28 Zato Agripa rěkl do Pavla: Malo bys mene ne podgovoril, da byh stal se hristijaninom.
-29 Ale Pavel rěkl: Jesm byh želal od Boga, da skoro ne toliko ty, ale i vsi, ktori mene dnes slušajut, stali se takymi, kakym i ja jesm. Volny iz tyh lancuhov.
+29 No Pavel rěkl: Jesm byh želal od Boga, da skoro ne toliko ty, no i vsi, ktori mene dnes slušajut, stali se takymi, kakym i ja jesm. Volny iz tyh lancuhov.
 30 A kogdy on to rěkl, vstal kralj i naměstnik, i Bernike, i ti, ktori sěděli s njim.
-31 Odstupivši bokom, rěkli jedni k drugym, govoreči: „Ničto zasluživajuče smrti ili temnice ne čini toj čelověk.“
-32 Agripa že rěkl Festu: „Mogl by toj člověk byti osvobodženy, daby ne apeloval cěsaru.“
+31 Odstupivši bokom, rěkli jedni k drugym, govoreči: Ničto zasluživajuče smrti ili temnice ne čini toj čelověk.
+32 Agripa že rěkl Festu: Mogl by toj člověk byti osvobodženy, daby ne apeloval cěsaru.
 
 ## Razděl 27
 
@@ -1020,19 +1020,19 @@
 7 A kogda jesmo črěz mnogo dnev pomalo pluli i ledva protiv Knida prijehali, nam už větr ne dopustil, my popluli pod Kreto podle Salmona.
 8 A Ledva jih preminuvši, jesmo došli do gradaa něktorogo, ktorogo nazyvajut Krasnymi Portami, od ktorogo blizko byl grad Laseja.
 9 A kogda čas nemaly minul i už bylo nebezpečno pluti, ibo už post prěšel, Pavel napominal jim:
-10 "Muži, vidžu ja, da nebezpečnostju i s velikym poškodženjem ne toliko tovarov i korabov, ale takože duš naših ta jezda nam grozi.".
+10 "Muži, vidžu ja, da nebezpečnostju i s velikym poškodženjem ne toliko tovarov i korabov, no takože duš naših ta jezda nam grozi.".
 11 Jednako polkovnik boljše věril korabniku i sterovniku než tomu, čto Pavel povědal.
 12 A kogda ne bylo porta sposobnogo za zimovanja, mnogo ljudij radilo odpluti odtud, aby kako mogli prěpluti do Fenicije i prězimovati v Kretskym portu, ktory leži medžu větrom južnym i zapadnym.
 13 A kogda dul větr od juga, myslili, da svoje prědprijemstvo mogut dostignuti, odpluvši od brěga, pluli blizko Krety.
-14 Ale ne dolgo potom udaril na njih větr silny, ktory nazyvajut Euroklidon.
+14 No ne dolgo potom udaril na njih větr silny, ktory nazyvajut Euroklidon.
 15 A kogda korab byl vozneseny i ne mogl se oprěti větru, jesmo se oddali i pluli.
 16 I kogda my pripluli pod někaky maly ostrov, ktory zovut Kauda, ledva jesmo mogli korab zadržati.
 17 Kogdy vozdvignuli to, pomočju uživali, napinavši šnury okolo koraba, a boječi se, aby ne vpadl na hak, spustivši větrilo, tako pluli.
 18 Ibo nami burja mnogo metala, zautra tovary jesmo izkydnuli.
 19 A tretjego dnja rukami našimi koraby orudovanje jesmo izkydnuli.
-20 Ale kogda se ni solnce, ni zvězdy črěz mnogo dnev ne ukazali, a burja nemala nalegala, na konec odjeta byla vsaka naděja, aby jesmo mogli byti prěžiti.
+20 No kogda se ni solnce, ni zvězdy črěz mnogo dnev ne ukazali, a burja nemala nalegala, na konec odjeta byla vsaka naděja, aby jesmo mogli byti prěžiti.
 21 Ibo jesmo dolgo ne jedli, Pavel stoječi posrěd jih rěkl: Byste iměli uslyšati mene i ne puščati se od Krety, a tak obhoditi toj strah i škodu.
-22 Ale i tutčas napominam vas, byste byli dobroj mysli; ibo ne sgne iz vas nijedna duša, kromě koraba.
+22 No i tutčas napominam vas, byste byli dobroj mysli; ibo ne sgne iz vas nijedna duša, kromě koraba.
 23 Ibo stanul pri mně toj noči Angel Boga togo, ktorogo ja jesm i ktoromu služu;
 24 Govoreči: Ne boj se, Pavle! trěba tobě stavati se prěd cěsara, a vot daroval ti Bog vsih, ktori plovut s toboju.
 25 Zato budte dobroj mysli, muži! ibo věrju Bogu, da tak bude, kako mi pověděno.
@@ -1041,9 +1041,9 @@
 28 Togdy spustivši šnur s olovom, našli gluboke dvadeseti nitok; a ne daleko, snova spustili olovo i našli petnadseti nitok.
 29 A boječi se, byhmo na měst ostryh ne vpadli, izkydnuli četyri kotvy iz zada koraba, očekyvali, aby den byl.
 30 A kogda morjeplavatelji htěli iz koraba utekti i spustili lodku na more, htěli kako se tvrdi od prěda koraba izkydnuti kotvy,
-31 Rěkl Pavel polkovniku i vojinam: „Jestli se ti ne ostanut v korabu, vy ne možete byti spaseni.“
+31 Rěkl Pavel polkovniku i vojinam: Jestli se ti ne ostanut v korabu, vy ne možete byti spaseni.
 32 Togda vojini odsěkli šnury u koraba i dopustili jemu odpasti.
-33 A medžu tym, poka ne nastupil den, napominal Pavel vsim, aby prijeli jedu, govoreči: „Dnes jest četyrinadseti den, kako čekajuči trvajete bez jedy, ničego ne jeduči.
+33 A medžu tym, poka ne nastupil den, napominal Pavel vsim, aby prijeli jedu, govoreči: Dnes jest četyrinadseti den, kako čekajuči trvajete bez jedy, ničego ne jeduči.
 34 Zato prošu vas, byste prijeli jedu; ibo to služi k vašemu spasenju i nijednomu iz vas vlas iz glavy ne opade.
 35 A to revši i hlěb vzevši, podekoval Bogu prěd vsimi i slomil go i počel jesti.
 36 Potom vsi, byvši lěpšego smysla, i sami krmili se.
@@ -1051,17 +1051,17 @@
 38 Byvši tu jedoju nasyčeni, oblegčenje činili korabu,ibo izkydnuli zrno v morje.
 39 A kogda byl den, ne poznali zemji; no zauvažili brěg, k komu radili, jestli jest možlivo, pribiti korab.
 40 A iztegnuvši kotvu, pustili se na morje; a razpustivši ster i vozdvignuli větrilo po větru, napravjati se do brěga;
-41 Ale napadši na město, ktoro imělo iz oboju stran morje, razbil se korab; a prěd koraba zatknul i ostal se, a zad razbil se od nasilnyh valov.
+41 No napadši na město, ktoro imělo iz oboju stran morje, razbil se korab; a prěd koraba zatknul i ostal se, a zad razbil se od nasilnyh valov.
 42 Togda vojini radili, aby vezenjev ubili, daby nikto izplyvši ne utekl.
-43 Ale polkovnik htěl hraniti Pavla, obstanovil jih od togo děla i razkazal tym, ktori mogli plavati, aby se najprvo v morje pustili i na brěg izšli;
+43 No polkovnik htěl hraniti Pavla, obstanovil jih od togo děla i razkazal tym, ktori mogli plavati, aby se najprvo v morje pustili i na brěg izšli;
 44 Něktori na doskah, a něktori na čestah koraba. I tak se stalo, da vsi zdravo izšli na zemju.
 
 ## Razděl 28
 
 1 Jesmo byli spaseni i poznali, da toj ostrov Maltoju nazyvajut.
-2 Ale ov gruby narod pokazal nam nemalo ljudskosti; ibo zapalivše stog drěv, prijeli nas vsih radi dožda padajučego i radi zimy.
+2 No ov gruby narod pokazal nam nemalo ljudskosti; ibo zapalivše stog drěv, prijeli nas vsih radi dožda padajučego i radi zimy.
 3 A kogdy Pavel nahvatal kupu hrusta i kladl na ogonj, prišla zmija iz povoda žara, pripela se k rukě jego.
-4 A kogdy ov narod uzrěl ovogo gada visečego u ruky jego, govorili jedni k drugym: „Istinno toj člověk jest ubijceju; ibo črěz to,čto iz morja ušel, mu pomsta živym byti ne dopustila.“
+4 A kogdy ov narod uzrěl ovogo gada visečego u ruky jego, govorili jedni k drugym: Istinno toj člověk jest ubijceju; ibo črěz to,čto iz morja ušel, mu pomsta živym byti ne dopustila.
 5 No on otresavši ovogo gada v ogonj, ničego zlogo ne utrpěl.
 6 A oni čekali, aby opuhnul, abo naglo upadl mrtvy; a kogdy togo dolgo čekali, a viděli, čto mu se ničego zlogo ne stalo, izměnivši se, govorili, da jest Bogom.
 7 A pri ovyh městah iměl folvarky najbogatějši ovogo ostrova, imenom Publijus, ktory prijevši nas, črěz tri dni prijateljsko gostil.
@@ -1083,7 +1083,7 @@
 23 A postanovivši jemu den, prišlo jih jemu do kvartiry nemalo, s ktorymi s izkušenjem izkladal kraljevstvo Božje, podgovoriti jih do tyh věčij, ktore sut o Jezusu, iz zakona Mojzesa i iz prorokov, od utra až do večera.
 24 Togdy něktori uvěrili tomu, čto govoril, a něktori ne uvěrili.
 25 A byvši nejedinomyslnymi medžu soboju, razdělili se, kogda Pavel rěkl to jedno slovo: Dobro Duh Svety pověděl črěz Izaiasa proroka, do otcev naših,
-26 Govoreči: Idi do togo naroda, a govori: Ušami slušati budete, ale ne razumějete, a očami viděti budete, ale ničego ne uzrite;
+26 Govoreči: Idi do togo naroda, a govori: Ušami slušati budete, no ne razumějete, a očami viděti budete, no ničego ne uzrite;
 27 Ibo otvrdělo se srdce naroda togo, a težko ušami slušali i zamknuli oči svoje, aby očami ne viděli, a ušima ne slyšali, i srdcem ne razuměli, i ne odvratili se, byh jih uzdravil.
 28 Nehaj že vam togdy vědomo bude, da poganam poslano jest to spasenje Božje, a oni slušati budut.
 29 A kogda on to rěkl, odšli Židi, imajuči medžu soboju veliky spor.

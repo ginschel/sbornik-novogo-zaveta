@@ -127,7 +127,7 @@ prěstavili Gospodinu,
 39 A tak sveršivši vse po zakonu Gospodinskogo, vratili se do Galilei, do svojego grada Nazareta.
 40 A děte rastlo, i ukrěpilo se v Duhu, polno mudrosti, a laska Božja byla nad njim.
 41 A roditelji jego hodili na vsako lěto do Jeruzalema na prazdnik pashalny.
-42 A kogdy už byl v dvanadsetym lětu, oni vstupali do Jeruzalema po obyčaju togo prazdnika;
+42 A kogdy už byl v dvanadsetom lětu, oni vstupali do Jeruzalema po obyčaju togo prazdnika;
 43 I kogdy skončili se te dni, i už vračali se nazad, ostalo děte Jezus v Jeruzalemu, no togo ne věděli ni Jozef ni jego mati.
 44 No mysleči, že jest v družině putujučej, odšli denj stežky, i iščali go medžu srodnikami i medžu znajomymi.
 45 A kogdy go ne našli, vratili se do Jeruzalema, iščuči go,
