@@ -83,7 +83,7 @@ All translations authored by me — including:
 * The Acts of the Apostles
 * All prayers in the appendix (except the Divine Mercy Chaplet)
 
-are licensed under the **Creative Commons CC BY 4.0** license.
+and all my scripts in this repository are licensed under the **Creative Commons CC BY 4.0** license.
 
 This license allows anyone to:
 
@@ -97,6 +97,7 @@ for any purpose, including commercial use, provided that appropriate credit is g
 
 The translations by Michał Swat are included with his explicit permission and are not covered by the Creative Commons license applied to the rest of this work.
 
+The Noto fonts in this repository are free fonts that can be used freely, including in commercial projects.
 
 ## Project Status
 
