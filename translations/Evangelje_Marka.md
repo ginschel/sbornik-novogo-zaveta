@@ -7,14 +7,14 @@
 3 Glas zovučego na pustynji: Gotovite put Gospodnji, učinite Jemu proste stežky.
 4 Byl Joan na pustynji, kresteči i dělal krest pokajanja na odpuščenje grěhov.
 5 I izhodila k njemu vsa krajina židovska i vsi iz Jeruzalema, i byli od njego kreščeni v rěkě Jordan, izpovědajuči se grěhov svojih,
-6 A Joan nosil odědžu iz srsti velbludskoj i pas koženy okrug bedr svojih, krmil se sarančami I medom lěsnym..
+6 A Joan nosil odědžu iz srsti velbludskoj i pas koženy okrug bedr svojih, krmil se sarančami i medom lěsnym..
 7 I prědskazal: Ide za mnoju silnějši od mene, ktorogo ne jesm dostojen, padavši razrěšiti remenj u Jego sandalov.
 8 Jesm vas krestil vodoju, ale On vas bude krestiti Duhom Svetym.
-9 I stalo se, v ove dni prišel Jezus iz Nazareta v Galileji byl kreščen od Joana v Jordanu.
+9 I stalo se, v ove dni prišel Jezus iz Nazareta v Galileju i byl kreščen od Joana v Jordanu.
 10 A směsta, izstupivši iz vody, uzrěl odkryvajuče se nebesa i Duha kako golubicu trvajuči na Njim.
 11 I izjavil se glas iz neba: Ty jesi Moj mily Syn, v Tobě imam spodobanje.
 12 A směsta Duh izgnal jego na pustynju.
-13 I byl na pustynji četyrideset dni i četyrideset noči, i byl pokušeny od djabla, i byl s zvěrami, a angeli služili Mu.
+13 I byl na pustynji četyrideset dnjev i četyrideset nočij, i byl pokušeny od djabla, i byl s zvěrami, a angeli služili Mu.
 14 A potom, kogda Joan byl izdany, prišel Jezus do Galileje, prědskazyvajuči Evangelje carstva Božjego,
 15 govoreči: Uže se izpolnil čas i približilo se carstvo Božje. Obračajte se i věrite v Evangelje.
 16 I iduči mimo Galilejskogo morja, viděl Simona i Andreja, brata jego, metajuči sěti do morja (bo byli rybakami),
@@ -36,16 +36,16 @@
 32 A kogda byl večer, kogda solnce zašlo, prinosili k Njemu vsih, ktori byli boljni i vladeni črěz demonov,
 33 i vse město sobralo se pri dverah.
 34 I uzdravil mnogo ljudij, ktori stradali različnymi hvorobami, i izgnal mnogo črtov, i ne dopustil jim govoriti, že Go poznali.
-35 Utrom izšel na puste město i tam se molil.
+35 Utrom izšel na pusto město i tam se molil.
 36 I šel za Njim Simon i ti, ktori pri Njim byli.
 37 Kogdy našli Go, pověděli Mu: Vsi tebe iščut.
-38 I rěkl jim: Pojdemo drugoju dragoju do susědnyh gradov, dabyh i tam mogl učiti, bo na to jesm izšel.
+38 I rěkl jim: Pojdemo drugoju dragoju do susědnyh gradov, dabyh i tam mogl učiti, bo na to Jesm izšel.
 39 I glasil v jih synagogah i po vsej Galileji i izgnal črty.
 40 I prišel k Njemu leprovaty člověk, prosil Go, padajuči na kolěna: Jestli hčeš, možeš me očistiti.
 41 A Jesus, pomilujuči se nad njim, iztegnul svoju ruku i dotknuvši jego, rěkl mu: Hču, dabys byl očiščen.
 42 A kogda rěkl, naglo lepra ostavila go, i byl očiščen.
 43 I zagrozil mu, i směsta go pustil.
-44 I rěkl mu: Gledaj, dabys nikomu ničto ne povědal. Ale idi, pokaži se najvysšemu kaplanu i složi za svoje očiščenje žrtvu, ktoru prikazal Mojzes na svědočstvo jim.
+44 I rěkl mu: Gledaj, dabys nikomu ničto ne pověděl. Ale idi, pokaži se najvysšemu kaplanu i složi za svoje očiščenje žrtvu, ktoru prikazal Mojzes na svědočstvo jim.
 45 Ale on izšel i začel povědati i razglasiti slovo, tako že Jezus už ne mogl javno vojdti do grada, ale prěbyval na pustyh městah, a odvsud prihodili do Njego.
 
 ## Razděl 2
