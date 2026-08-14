@@ -98,7 +98,7 @@
 15 I dal jim moč uzdravjati hvoryh i izganjati črtov.
 16 I dal Simonu ime Petr;
 17 i prizval do sebe Jakoba syna Zebedeja, i Joana, brata Jakoba, i dal jim imena Boanerges, to jest syni groma;
-18 i takože Andreja, i Filipa, i Bartolomeja, i Mateja, i Tomasa, i Jakoba syna Alfeja, i Tadeja, i Simona iz Kanaana,
+18 i takože Andreja, i Filipa, i Bartolomeja, i Mateja, i Tomasa, i Jakoba syna Alfejeva, i Tadeja, i Simona iz Kanaana,
 19 i Judasa Iskariotskogo, ktory Jego izdal.
 20 I prišli do doma, i sobrala se snova tolpa, tak da ne mogli až hlěba jesti.
 21 A kogdy uslyšali togo Jego svoji, izšli, aby jego pojmali: ibo govorili, da on odšel od smyslov.
