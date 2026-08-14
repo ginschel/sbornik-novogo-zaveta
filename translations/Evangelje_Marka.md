@@ -8,7 +8,7 @@
 4 Byl Joan na pustynji, kresteči i dělal krest pokajanja na odpuščenje grěhov.
 5 I izhodila k njemu vsa krajina židovska i vsi iz Jerusalema, i byli od njego kreščeni v rěkě Jordan, i priznali se do grěhov svojih,
 6 A Joan nosil odědžu iz srsti velbludskoj i pas koženy okrug bedr svojih, krmil se sarančami i medom lěsnym.
-7 I prědskazal: Ide za mnoju silnějši od mene, ktorogo ne jesm dostojen, padavši razrěšiti remenj u Jego sandal.
+7 I prědskazyval: Ide za mnoju silnějši od mene, ktorogo ne jesm dostojen, padavši razrěšiti remenj u Jego sandal.
 8 Jesm vas krestil vodoju, ale On vas bude krestiti Duhom Svetym.
 9 I stalo se, v ove dni prišel Jesus iz Nazareta v Galileju i byl kreščen od Joana v Jordanu.
 10 A směsta, izstupivši iz vody, uzrěl odkryvajuče se nebesa i Duha, ktory kako golubica sošel na Njego.
@@ -27,7 +27,7 @@
 23 I byl v synagogě člověk, v ktorom byl duh nečisty. I glasil:
 24 Čto nam s toboju, Jesuse Nazaretsky? Jesi prišel izgubiti nas? Znam, kym jesi: Svety Bože!
 25 I grozil mu Jesus, govoreči: Molči i izojdi iz člověka!
-26 I trgajuči go duh nečisty i s glasnym krikom, izšel iz njego.
+26 I potresši go duh nečisty i s glasnym krikom, izšel iz njego.
 27 I divili se vsi, tako, da se medžu soboju pytali, govoreči: Čto to jest? Čto to za novo učenje? Už s vladoju duham nečistym razkazyvaje i sut mu poslušne?
 28 I tutčasno se raznesla slava Jego po vsej Galilejskoj krajině.
 29 I směsta izševši iz synagogy, došli do domu Simona i Andreja s Jakobom i s Joanom.
