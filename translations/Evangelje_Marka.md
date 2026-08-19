@@ -3,7 +3,7 @@
 ## Razděl 1
 
 1 Početok Evangelij Jesusa Hristosa, Syna Božjego.
-2 Kako jest napisano u proroka Izaje: Gledajte, ja posylaju angela mojego prěd lice Tvoje, ktory prigotovi put Tvoj.
+2 Kako jest napisano u proroka Izaje: Gledajte, Ja posylaju angela mojego prěd lice Tvoje, ktory prigotovi put (~stežku) Tvoj.
 3 Glas zovučego na pustynji: Gotovite put Gospodnji, učinite Jemu proste stežky.
 4 Byl Joan na pustynji, kresteči i dělal krest pokajanja na odpuščenje grěhov.
 5 I izhodila k njemu vsa krajina židovska i vsi iz Jerusalema, i byli od njego kreščeni v rěkě Jordan, i priznali se do grěhov svojih,
@@ -13,34 +13,34 @@
 9 I stalo se, v ove dni prišel Jesus iz Nazareta v Galileju i byl kreščen od Joana v Jordanu.
 10 A směsta, izstupivši iz vody, uzrěl odkryvajuče se nebesa i Duha, ktory kako golubica sošel na Njego.
 11 I izjavil se glas iz neba: Ty jesi Moj mily Syn, v Tobě imam blagovolěnje.
-12 A směsta Duh izgnal jego na pustynju.
-13 I byl na pustynji četyrideset dnjev i četyrideset nočij, i byl pokušeny od djabla, i byl s zvěrami, a angeli služili Jemu.
+12 A směsta Duh izgnal Jego na pustynju.
+13 I byl na pustynji četyrideset dnjev i četyrideset nočij, i byl pokušeny od djabla, i byl so zvěrami, a angeli služili Jemu.
 14 A potom, kogda Joan byl izdany, prišel Jesus do Galileje, glasil Evangelje carstva Božjego,
 15 govoreči: Uže se izpolnil čas i približilo se carstvo Božje. Obračajte se i věrite v Evangelje.
 16 I iduči mimo Galilejskogo morja, viděl Simona i Andreja, brata jego, metajuči sěti do morja (ibo byli rybakami),
 17 i rěkl jim Jesus: Idite za Mnoju, i učinju vas, da budete rybakami ljudij.
 18 I tutčasno ostavivše sěti, pošli za Njim.
 19 I odstupivši toliko malo, viděl Jakoba Zebedejeva i Joana, brata jego, ktori napravjali sěti v lodi,
-20 i iznenada jih pozval do sebe. I ostavivše otca svojego Zebedeja v lodi s najemnikami, pošli za Njim.
+20 i iznenada (~neočekyvano) jih pozval do Sebe. I ostavivše otca svojego Zebedeja v lodi s najemnikami, pošli za Njim.
 21 I došli do Kafarnauma. I iznenada v subotu, všel do synagogy i učil jih.
-22 I čudili se učenju Jego: ibo on jih učil kak vladec, a ne kako učeni v Pismu.
+22 I čudili se učenju Jego: ibo On jih učil kak vladec, a ne kako učeni v Pismu.
 23 I byl v synagogě člověk, v ktorom byl duh nečisty. I glasil:
-24 Čto nam s toboju, Jesuse Nazaretsky? Jesi prišel izgubiti nas? Znam, kym jesi: Svety Bože!
+24 Čto nam s Toboju, Jesuse Nazaretsky? Jesi prišel izgubiti nas? Znam, kym jesi: Svety Bože!
 25 I grozil jemu Jesus, govoreči: Molči i izojdi iz člověka!
 26 I potresši jego duh nečisty i s glasnym krikom, izšel iz njego.
 27 I divili se vsi, tako, da se medžu soboju pytali, govoreči: Čto to jest? Čto to za novo učenje? Už s vladoju duham nečistym razkazyvaje i sut jemu poslušne?
 28 I tutčasno se raznesla slava Jego po vsej Galilejskoj krajině.
-29 I směsta izševši iz synagogy, došli do domu Simona i Andreja s Jakobom i s Joanom.
+29 I směsta izševši iz synagogy, došli do doma Simona i Andreja s Jakobom i s Joanom.
 30 A svekrov Simona ležala, imajuči gorečku, a uže pověděli Jemu o njej.
 31 I pristupivši, držal ruku jej, i skoro ju gorečka ostavila, i služila jim.
-32 A kogda byl večer, kogda solnce zašlo, prinosili k Njemu vsih, ktori byli boljni i vladany črěz demonov,
+32 A kogda byl večer, kogda solnce zašlo, prinosili k Njemu vsih, ktori byli boljni i vladani črěz demonov,
 33 i vse město sobralo se pri dverah.
 34 I uzdravil mnogo ljudij, ktori stradali različnymi hvorobami, i izgnal mnogo črtov, i ne dopustil jim govoriti, da Jego znali.
 35 Utrom izšel na pusto město i tam se molil.
 36 I šel za Njim Simon i ti, ktori pri Njem byli.
 37 Kogdy našli Jego, pověděli Jemu: Vsi tebe iščut.
 38 I rěkl jim: Pojdemo drugoju stežkoju do susědnyh gradov, dabyh i tam mogl učiti, ibo na to Jesm izšel.
-39 I glasil v jih synagogah i po vsej Galileji i izgnal črty.
+39 I glasil v jih synagogah i po vsej Galileji i izgnal črtov.
 40 I prišel k Njemu leprovaty člověk, prosil Jego, padajuči na kolěna: Jestli hčeš, možeš mene očistiti.
 41 A Jesus, pomiloval se nad njim, iztegnul svoju ruku i dotknuvši jego, rěkl jemu: Hču, dabys byl očiščen.
 42 A kogda rěkl, naglo lepra ostavila jego, i byl očiščen.
@@ -53,7 +53,7 @@
 1 I snova prišel do Kapernauma po několiko dnjah,
 2 i uslyšano, da On jest v domu, i mnogo ljudij se sobralo, tak, da se poměstiti ne mogli až pri dverah. I govoril k njim slovo.
 3 I prišli do Njego, nesuči paralizovanogo, kogo nesli četyri.
-4 A kogda jego ne mogli prinesti jego iz povoda tolpy, odkryli pokryv doma, v ktorom On byl, i učinivši diru v njem, spustili lože, na ktorom paralizovany ležal.
+4 A kogda jego ne mogli prinesti iz povoda tolpy, odkryli pokryv doma, v ktorom On byl, i učinivši diru v njem, spustili lože, na ktorom paralizovany ležal.
 5 A Jesus, uzrěvši věru jih, rěkl paralizovanomu: Syne, odpuščajut se tobě grěhy tvoje.
 6 A byli tam něktori iz učenyh v Pismu, sědeči i mysleči v srdcah svojih:
 7 Čemu toj tako govori? Bogohuli! Kto grěhy odpustiti može, než jedino sam Bog?
@@ -65,19 +65,19 @@
 13 I izšel snova do morja, a ves ljud prihodil k Njemu, a On jego naučil.
 14 A kogda mimo hodil, uzrěl Levi Alfejeva sědečego v komorě mytnice i rěkl jemu: Pojdi za Mnoju. A vstavši, šel za Njim.
 15 I stalo se, kogda sěděl u stola v domu jego, mnogo mytnikov i grěšnikov zajedno sěděli s Jesusom i s Jego učenikami. Ibo jih mnogo bylo, ktori hodili za Njim.
-16 I kogdy viděli učeni v Pismu i fariseji, da on jel s mytnikami i grěšnikami, rěkli jego učenikam: "Čemu vaš učitelj je i pije s mytnikami i grěšnikami?"
-17 To uslyšavši, Jesus jim rěkl: "Zdravi ne trěbujut lěkara, toliko boljni. Ibo ja ne prišel zvati spravědlivyh, toliko grěšnyh."
+16 I kogdy viděli učeni v Pismu i fariseji, da on jel s mytnikami i grěšnikami, rěkli Jego učenikam: "Čemu vaš Učitelj je i pije s mytnikami i grěšnikami?"
+17 To uslyšavši, Jesus jim rěkl: "Zdravi ne trěbujut lěkara, toliko boljni. Ibo Ja ne prišel zvati spravědlivyh, toliko grěšnyh."
 18 A učeniki Joana i fariseji postili, i prišli, i rěkli Jemu: "Čemu učeniki Joana i farisejev postet, a tvoji učeniki ne postet?"
 19 I rěkl jim Jesus: "Či ljudi mogut na svatbě postiti, dopoka mladoženih jest s njimi? Ne mogut postiti, poka mladoženih jest u njih.
 20 Ale prijdut dni, kogda mladoženih bude vzety od njih, i togda budut postiti v ove dni.
 21 Nikto ne prišije laty iz surovogo suknja k staroj oděži, ibo nova lata obryva ješče čest iz staroj oděži i tvori se gorše razdiranje.
 22 I nikto ne lije novogo vina v stare měhy, ibo inače vino razrve měhy i vino izlije se, a měhy izniščet. Ale novo vino imaje byti lito v nove měhy."
-23 I stalo se, kogda Gospodin hodil v subotu črěz žito, a jego učeniki načeli idti i rvati klasy.
+23 I stalo se, kogda Gospodin hodil v subotu črěz žito, a Jego učeniki načeli idti i rvati klasy.
 24 A fariseji Jemu rěkli: "Gledaj, čto činet v subotu, čto ne dostojno!"
 25 I rěkl jim: "Jeste nikogda li ne čitali, čto učinil David, kogda iměl potrěbu i byl gladny i ti, ktori byli s njim?
 26 Kako všel do doma Božjego za Abiatara, najvysšego kaplana, i jedl hlěby žrtvene, ktoryh ne bylo svobodno jesti nikomu, než kaplanam, i dal tym, ktori byli s Njim?"
 27 I rěkl jim: "Subota učinjena jest za člověka, a ne člověk za subotu.
-28 I tako Syn Člověčsky jest gospodom i suboty."
+28 I tako Syn Člověčsky jest Gospodom i suboty."
 
 ## Razděl 3
 
@@ -102,35 +102,35 @@
 19 i Judasa Iskariotskogo, ktory Jego izdal.
 20 I prišli do doma, i sobrala se snova tolpa, tak da ne mogli až hlěba jesti.
 21 A kogdy uslyšali togo Jego svoji, izšli, aby jego pojmali: ibo govorili, da on odšel od smyslov.
-22 A učeni v Pismu, ktori prišli iz Jerusalema, govorili da on ima Belzebuba a črěz moč kneza djabolskogo črty izganja.
+22 A učeni v Pismu, ktori prišli iz Jerusalema, govorili da on ima Belzebuba a črěz moč kneza djabolskogo črtov izganjaje.
 23 I pozvavši jih, govoril do njih v parabolah: Kako može djabol djabla izganjati?
-24 I kraljevstvo, jestliby protiv sebe bylo razděljene, ne može to kraljevstvo ostati.
+24 I kraljevstvo, jestliby protiv sebe bylo razděljeno, ne može to kraljevstvo ostati.
 25 I dom, jestliby protiv sebe byl razděljeny, ne može toj dom ostati.
 26 I djabol, jestliby sam protiv sebe povstal, razděljeny jest i ne bude mogti ostati, ale by imal konec.
 27 Nikto ne može vojdti do doma silnogo muža i orudja jemu ukrasti, jestli silnogo muža najprvo ne sveže, i togda dom jego ograbi. 
-28 Zapravdu govorim vam, da vse grěhy budut odpuščene synom ljudskym i vsim bogohulstvam, ktorymi by bogohulili.
+28 Zapravdu govorim vam, da vse grěhy budut odpuščene synam ljudskym i vsim bogohulstvam, ktorymi by bogohulili.
 29 Ale kto by bogohulil protiv Duhu svetomu, ne ima odpuščenja na věky, ale bude vinen grěha věčnogo.
 30 I govorili: On ima duha nečistogo.
 31 I prišli Jego mati i brati, i stoječi prěd domom, poslali po Njego, aby Jego prizvali.
-32 I tolpa sěděla okolo Njego. I rěkla jemu: „Gledaj, tvoja mati i tvoji brati iščut Tebe prěd domom.“
-33 I odgovoril jim: „Kym sut moja mati i moji brati?“
-34 I pogledavši na tyh, ktori sěděli okolo Njego, rěkl: „Tu sut, moja mati i moji brati!
-35 Ibo kto bude tvoriti volju Božju, toj jest brat moj, sestru moja i mati moja.“
+32 I tolpa sěděla okolo Njego. I rěkla Jemu: „Gledaj, Tvoja mati i Tvoji brati iščut Tebe prěd domom.“
+33 I odgovoril jim: „Kym sut Moja mati i Moji brati?“
+34 I pogledavši na tyh, ktori sěděli okolo Njego, rěkl: „Tu sut, Moja mati i Moji brati!
+35 Ibo kto bude tvoriti volju Božju, toj jest brat Moj, sestra Moja i mati Moja.“
 
 ## Razděl 4
 
-1 I počel snova učiti pri morju: sobralo se pri Njemu velika tolpa, tako da všel do lodi i sěděl na morju, a vsa tolpa byla na pobrěžnom.
+1 I počel snova učiti pri morju: sobrala se pri Njemu velika tolpa, tako da všel do lodi i sěděl na morju, a vsa tolpa byla na pobrěžnom.
 2 I učil jih mnogo v parabolah, i govoril jim v naukě svojej:
 3 Slušajte: Sějatelj izšel sějati.
-4 A kogdy sějal, jedno spadlo pri stežkě, a ptice nebeske prišli i jeli je.
+4 A kogdy sějal, jedno spadlo pri stežkě, a ptice nebeske prišli i jedli je.
 5 A drugo padlo na kamenno město, na ktorom ne bylo mnogo zemje. I směsta vozošlo, ibo ne bylo glubokoj zemje,
 6 a kogda solnce vozošlo, obžglo (~ spalilo) se i ne imajuči korenja, usohnulo.
 7 A drugo padlo v trny. I izrastli trny, i dušili je, i ne dalo ploda.
 8 A drugo upadlo na zemju dobru. I dalo plod bujny i razmnožilo se: a jedno prineslo tridesetkratno, jedno šestdesetkratno, jedno stokratno.
 9 I govoril: Kto ima uši do slyšanja, nehaj slyši.
-10 A kogda sam toliko byl, pytali jego ti dvanadset, ktori pri Njem byli, o parabolu.
+10 A kogda Sam toliko byl, pytali Jego ti dvanadset, ktori pri Njem byli, o parabolu.
 11 I govoril jim: Vam dano jest poznati tajenstvo kraljevstva Božjego; ale tym, ktori vně sut, vse jest učeno v parabolah:
-12 aby viděli očima, a ne viděli, a slyšali, a ne razuměli: by se ne obratili a byli jim odpuščene grěhy.
+12 aby viděli očami, a ne viděli, a slyšali, a ne razuměli: by se ne obratili a byli jim odpuščene grěhy.
 13 I rěkl jim: Ne razumějete toj paraboly? To kako že budete razuměti vse paraboly?
 14 Toj, ktori sěje, slovo sěje.
 15 A ti pri stežkě, sut ti, ktori, kak jest razsějivano slovo, jego uslyšet. No směsta prihodi djabol i bere slovo, ktoro jest sějano v jih srdcah.
@@ -156,7 +156,7 @@
 35 I govoril jim v ovom dnju, kogdy večer nastal: Prěplyvajmo na drugu stranu.
 36 A ostavivši tolpu, vzeli Jego, kako byl, v lodi, a druge lodi byli s Njim.
 37 I stala se velika burja větra, i valy lili v lod, tako da lod se napolnila.
-38 A on byl na zadu lodi, i spal na poduškě. I budili jego, i govorili Jemu: Učitelju, Tobě jest vsejedno, da pogynamo?
+38 A on byl na zadu lodi, i spal na poduškě. I budili Jego, i govorili Jemu: Učitelju, Tobě jest vse jedno, da pogynamo?
 39 A probudivši se, zagrozil větru i rěkl morju: Molči, bud tihy! I prěstal větr, i stala se tišina velika.
 40 I rěkl jim: Čemu jeste bojazlivi? Či ješče ne imate věry?
 41 I prěstrašili se strahom velikym. I govorili jedin k drugomu: Kym že On jest, da i větr, i morje poslušne Jemu?
@@ -167,21 +167,21 @@
 2 I kogda On izhodil iz lodi, směsta Jemu priběgl iz grobov člověk s nečistym duhom,
 3 ktory žil v grobah, i nikto ne mogl jego už lancuhami svezati:
 4 ibo često svezali jego v lancuhah na nogah i rukah, ktore drobil i raztrgal, i nikto ne mogl jego pokoriti;
-5 i vsegda v dnju i v noči v grobah i v gorah byl, kričal i tolkl (~bil) sebe kamenjem.
+5 i vsegda v dnju i v noči v grobah i v gorah byl, kričal i tolkl (~bil) sebe ob kamenje.
 6 Uzrěl Jesusa iz daleka, priběgl i poklonil se Jemu,
-7 i kričavši glasno, rěkl: Čto mně i Tobě, Jesuse, Syne Boga Najvysšego? Zaklinam Te pri Bogu, ne muči mene!
+7 i kričavši glasno, rěkl: Čto Tobě do mene, Jesuse, Syne Boga Najvysšego? Zaklinam Te pri Bogu, ne muči mene!
 8 Ibo jemu rěkl: Izojdi, duše (~ sěv. duhu) nečisty, iz člověka!
 9 I pytal jego: Kako jest tvoje ime? I rěkl Jemu: Ime mi Legion, ibo nas jest mnogo.
 10 I prosil Jego mnogokratno, daby ne izgnal jih iz kraja.
 11 A tam pri gorě bylo veliko stado svinej, ktoro paslo.
 12 I prosili Jego črty: Pusti nas v svinje, dabyhmo v nje vošli.
-13 I směsta jim dopustil Jesus. I izšli duhy nečiste, vošli v svinje; i kydnulo se stado velikym běgom v morje, okolo dvoh tyseč, i utonuli v morju.
+13 I směsta jim dopustil Jesus. I izšli duhy nečiste, vošli v svinje; i kydnulo se stado velikym běgom v morje, okolo dvoh tysečij, i utonuli v morju.
 14 A ti, ktori jih pasli, utekli i glasili to v gradu i na poljah. I izšli, daby uviděti, čto se stalo.
 15 I prišli do Jesusa, i uviděli togo, ktory byl vladany črěz běsa, kak sěděl
 oblěčeny s dobrym razumom: i bojali se.
 16 Ti, ktori to viděli, pověděli jim, čto se stalo s tym, ktory iměl běsa, i o svinjah.
 17 I načeli Jego prositi, daby odšel iz jih granic.
-18 A kogda vstupal do lodi, načel Jego prositi toj, ktori byl vladany črěz běsa, daby byl pri njem.
+18 A kogda vstupal do lodi, načel Jego prositi toj, ktorz byl vladany črěz běsa, daby byl pri njem.
 19 Ale On jemu togo ne dopustil, a rěkl jemu: Idi do svojego doma k svojim, i glasi jim, kake velike děla Gospodin učinil tobě i pomiloval se nad toboju.
 20 I odšel, i načel slaviti v Dekapolu, kake velike děla učinil jemu Jesus: i vsi se divili.
 21 A kogda se Jesus snova prěpravil v lodi na brěg morja, sobrala se pri Njem velika tolpa, i byl nad morjem.
@@ -198,7 +198,7 @@ oblěčeny s dobrym razumom: i bojali se.
 32 I On se obziral (~razgledal) po narodu, daby viděl tu, ktora to učinila.
 33 A žena, boječi se i državši, ibo znala, čto se s njeju stalo, prišla i upadla prěd Njim a pověděla Jemu vsu pravdu.
 34 A On jej rěkl: Dočerko, tvoja věra tebe uzdravila. Idi v mir, i budi zdrava od tvojej hvoroby.
-35 A kogdy On ješče govoril, prišli ljudy od načelnika synagogy i govoreči: Tvoja dočerka umrla. Čemu ješče trudiš učitelja?
+35 A kogdy On ješče govoril, prišli ljudi od načelnika synagogy i govoreči: Tvoja dočerka umrla. Čemu ješče trudiš učitelja?
 36 A Jesus uslyšavši slova, ktore pověděli, rěkl načelniku synagogy: Ne boji se, toliko věri.
 37 I ne dopustil nikomu idti za Njim, jedino Petru i Jakobu, i Joanu, bratu Jakoba.
 38 I prišli do doma načelnika synagogy, i viděl golk (~šum), i plače i revenje.
@@ -237,7 +237,7 @@ oblěčeny s dobrym razumom: i bojali se.
 25 I kogdy vošla skoro s pospěhom do cara, prosila: „Hču, abys mi dal na talirkě glavu Joana Krestitelja.“
 26 I smutil se car. Povodom prisegy i povodom sědečih s njim ne htěl jej odkazati,
 27 no poslavši kata, žedal prinesti glavu jego na talirkě.
-28 I posěkl jego v vezenju i prinesl glavu jego na talirkě i oddal ju děvkě, a děvka oddala ju materi svojej.
+28 I posěkl jego v temnici (~vezenju) i prinesl glavu jego na talirkě i oddal ju děvkě, a děvka oddala ju materi svojej.
 29 Učeniki jego to čuvši prišli i vzeli tělo jego i položili jego v grobu.
 30 I sobrali se apostoli pri Jesusu, pověděli Jemu vse, čto činili i čto učili.
 31 I rěkl jim: Pojdite osobno na pusto město i odpočnite malo. Ibo mnogo bylo tyh, ktori prihodili i odhodili, i ni času iměli za jedenje. 
@@ -246,7 +246,7 @@ oblěčeny s dobrym razumom: i bojali se.
 34 I izševši Jesus viděl veliku tolpu i byl milosrdny nad njimi, ibo byli kako ovce ne imajuče pastyra. I počel jih učiti mnogo věčij. 
 35 A kogdy už byla pozdna časina, pristupili učeniki Jego, govoreči: Pusto to město jest, a časina už minula. 
 36 Odpusti jih, daby pošli do blizkyh sel i gradov kupiti sobě jedlo.
-37 A odgovorivši, rěkl jim: Dajte jim jesti. I rěkli Jemu: My povinni pojdti i kupiti za dvěstě grošev hlěby, čtoby jih nakrmiti? 
+37 A odgovorivši, rěkl jim: Dajte jim jesti. I rěkli Jemu: My povinni pojdti i kupiti za dvěstě grošev hlěby, daby jih nakrmiti? 
 38 I rěkl jim: Koliko hlěba imate? Idite i obzirajte. A kogdy dověděli se kolikosti (~nomera) hlěba, pověděli: Pet i dvě ryby.
 39 I kazal jim sobrati vsih v grupah na zelenoj travě. 
 40 I sěděli po stu i po petdeseti. 
@@ -263,7 +263,7 @@ oblěčeny s dobrym razumom: i bojali se.
 51 I vstupil do njih v lod, i prěstal větr. I tym věče sami byli začudženi,
 52 ibo ne razuměli o hlěbu: ibo srdce jih bylo slěpo.
 53 I prěplyvši, prišli do zemji Genezaret i pribyli do brěga.
-54 I izševši iz lodi, směsta Jego razpoznali.
+54 I izševši iz lodi, směsta Jego ljudi razpoznali.
 55 I sběgavši črěz vsu krajinu, počeli nositi na ložah hvoryh, kogdy uslyšali, da On jest.
 56 I kde-nebud prišel do gradov ili do sel (~vesij), ili do velikyh gradov, kladli hvoryh po ulicah i prosili Jego, daby dotknuli toliko čestku oděva Jego: a vsi, ktori Jego dotknuli, zdravi se stali.
 
@@ -295,11 +295,11 @@ oblěčeny s dobrym razumom: i bojali se.
 24 A vstavši odtud, odšel na granicu Tyra i Sidona: a vševši v dom, ne htěl, daby někto o tom znal. No ukryti se ne mogl.
 25 Ibo směsta kako uslyšala o Njem žena, ktoroj dočera iměla duha nečistogo, vošla i upadla pri nogah Jego.
 26 Ibo byla žena poganska, rodom Syrofenička. I prosila Jego, daby črta izgnal iz dočery jej.
-27 On rěkl jej: Daj prvo synam najesti se, ibo ne jest dobro brati hlěb synam, a mětati psom.
+27 On rěkl jej: Daj prvo synam najesti se, ibo ne jest dobro brati hlěb synam, a mětati psam.
 28 A ona odgovorila i rěkla Jemu: Da, Gospodine, ibo i ščeneta jedut pod stolom krohy synov.
 29 I rěkl jej: Povodom togo slova idi, izšel črt iz dočery tvojej.
 30 A kogdy odšla do doma svojego, našla ležeču dočeru na ložu a črt izšel.
-31 I izšel iz granic Tyra, prišel črěz Sidon k Galilejskomu Morju črěz srědu granic dekapolskyh.
+31 I izšel iz granic Tyra, prišel črěz Sidon k galilejskomu morju črěz srědu granic dekapolskyh.
 32 I privedli do Njego gluhogo i prosili Jego, daby položil na njego ruku.
 33 I vzevši jego od naroda, vložil prsty svoje v uši jego, i pljunuvši, dotknul jezyk jego,
 34 i podgledavši na nebo, vozdohnul i rěkl jemu: Effetah, to jest: otvori se.
@@ -311,7 +311,7 @@ oblěčeny s dobrym razumom: i bojali se.
 
 1 I v ove dni, kogdy byla velika tolpa, i ne iměla čego jesti, prizval učenikov Svojih i rěkl jim:
 2 žalj Mi jest ljudam, ktori už tri dni sut pri Mně, i ne imajut čego jesti,
-3 a jestli Ja odpušču jih gladnyh do domov jih, oni oslabějut na stežkě;, ibo něktori iz njih iz daleka prišli.
+3 a jestli Ja odpušču jih gladnyh do domov jih, oni oslabějut na stežkě; ibo něktori iz njih iz daleka prišli.
 4 I odgovorili Jemu jego učeniki: Odkud někto može nakrmiti jih hlěbom tut na pustynji?
 5 I pytal jih: Koliko hlěba imate? Oni odgovorili: Sedm.
 6 I razkazal tolpě sěděti na zemji. A vzevši sedm hlěbov, blagodaril i lamal i daval učenikam Svojim, daby položili je prěd njimi: i položili prěd tolpoju.
@@ -320,7 +320,7 @@ oblěčeny s dobrym razumom: i bojali se.
 9 A bylo tyh, ktori jedli, okolo četyri tyseči. I odpustil jih.
 10 I skoro všel v lod s učenikami Svojimi, prišel v stranu Dalmanuty.
 11 I prišli fariseji, i počeli s Njim razgovarjati, hočuče od Njego znamenja s neba, pokušajuči Jego.
-12 I vozdyhavši v duhu, rěkl: Čemu narod toj znamena probuje najdti? Zapravdu govorim vam, nijedno znamenje bude dano tomu narodu.
+12 I vozdyhavši v duhu, rěkl: Čemu narod toj znamena probuje najdti? Zapravdu govorim vam, nijedno znamenje ne bude dano tomu narodu.
 13 I odpustivši jih, všel do lodi i odplyvl na drugy brěg.
 14 I zabezpametili vzeti hlěba so soboju, iměli jedino jedin hlěb v lodi.
 15 I kazal jim: Gledajte i hranite se kvasa farisejskogo i kvasa Heroda.
@@ -335,8 +335,8 @@ oblěčeny s dobrym razumom: i bojali se.
 24 A on gleděl i govoril: Vidim ljudij, ktori kak drěva hodet.
 25 Potom snova položil ruky na oči jego i počel viděti, i byl uzdravljen, tako da viděl vse jasno.
 26 I odslal jego do doma jego, govoreči: Idi do doma svojego, a jestli vojdeš do sela, nikomu ne govori.
-27 I izšli Jesus i učeni Jego do sela Kesarije Filipa; a na stežkě pytal učenikov Svojih, govoreči jim: Za kogo Mene imajut ljudy?
-28 Něktori jemu odgovorili, govoreči: Za Joana Krstitelja, drugi za Iliju, a drugi za jedinogo iz prorokov.
+27 I izšli Jesus i učeniki Jego do sela Kesarije Filipa; a na stežkě pytal učenikov Svojih, govoreči jim: Za kogo Mene imajut ljudy?
+28 Něktori jemu odgovorili, govoreči: Za Joana Krstitelja, drugi za Iliju, a drugi za jednogo iz prorokov.
 29 Togdy jim rěkl: A vy, za kogo vy Mene imate? A odgovoril Petr: Ty jesi Hristos!
 30 I zabranil jim, aby o Njem nikomu ne pověděli.
 31 I počel jih učiti, da Syn Člověčsky mnogo trpěti bude i, da i odkydnuty bude od starějših i od glavnyh kaplanov, i od učenyh v Pismu, i ubity. A po trěh dnjah vozkresne.
@@ -349,61 +349,61 @@ oblěčeny s dobrym razumom: i bojali se.
 38 Ibo, kto by se zasramil Mně i slov Mojih prěd narodom tym prěljubnym i grěšnym, togo budo zasramiti se Syn Člověčsky, kogda prijde v slavě Otca Svojego s angelami svetymi.
 
 ## Razděl 9
-
-1 I po šest dnjah vzel Jesus Petra i Jakoba, i Joana, i izvedl jih osobno na vysoku goru, i prěměnil se prěd njimi.
-2 I Jego odědže staly se tako světle i velmi běle kako sněg. Tako běle, kako ni jedin na zemji běliti može.
-3 I ukazal se Ilija s Mojzesom, i govorili s Jesusom.
-4 I Petr rěkl k Jesusu: Rabbi, dobro nam jest tut byti; učinimo tri šatory: Tobě jedin, a Mojzesu jedin, a Iliji jedin.
-5 Ne znal, čto govoril, ibo byli zastrašeni.
-6 I javil se oblak, ktory Jih zaslonil, i prišel iz oblaka glas, govoreči: To jest Syn Moj ljubjeny, slušajte Jego.
-7 I směsta obzirajuči se, nikogo veče ne viděli, jedino Jesusa samogo.
-8 I kogdy shodili iz gory, kazal jim, daby nikomu ne pověděli, čto viděli, až Syn Člověčsky ne vstane iz mrtvyh.
-9 I shranili to slovo u sebe, pytajuči se medžu soboju, čto to jest: vstati iz mrtvyh.
-10 I pytali Jego: Čemu fariseji i učeni v Pismu govoret, da trěba, daby najprvo prišel Ilija?
-11 On odgovoril jim: Ilija prijde najprvo i napravi vse; a kako jest napisano o Synu Člověčskom, daby mnogo trpěl i prězirany byl.
-12 Ale vam govorim, da Ilija prišel. Učinili jemu, čto htěli, tako, kako jest napisano o njem.
-13 I kogdy prišel do Svojih učenikov, viděl mnogu tolpu okolo njih, i učenyh v Pismu govorečih s njimi.
-14 I směsta vsi ljudy, viděvši Jesusa, divili se i prěstrašili se. Priběgli, aby Jego vitati.
-15 I pytal jih: O čem govorite medžu soboju?
-16 I odgovoril jedin iz tolpy i rěkl: Učitelju, jesm privedl Tobě syna mojego, ktory ima němy duh.
-17 I kdekoli jego napadne, trese jego, i sliny tekut, i skripi zubami, i stane se negybky (~ kak kamenj). Jesm govoril Tvojim učenikam, daby jego izgnali, no ne mogli.
-18 On odgovoril jim: O narode nevěrny, kak dolgo pri vas budu? Kak dolgo vas trpěti budu? Privedite jego do Mně.
-19 I privedli jego do Njego. I kak toliko jego uzrěl, duh počel jego tresti, i padši na zemju, valjal se i sliny tekli.
-20 I spytal otca jego: Kogdy se to jemu stalo? On rěkl: Od dětinstva.
-21 I često jego metal v ogonj i vodu, daby jego ubil; no jestli možeš, pomoži nam, pomiluj se nad nami.
-22 Jesus rěkl jemu: Jestli možeš věriti. Vse jest možno tomu, ktori věri.
-23 I směsta kriknul otec děteta, so solzami rěkl: Věrju, Gospodine! Pomoži mojemu nevěrju.
-24 Jesus viděvši, da se tolpa sbirala, grozil nečistomu duhu, rěkl jemu: Němy i gluhy duše (sěv. ~duhu), ja tobě kažu, izojdi iz njego i ne vhodi už v njego.
-25 I kriknul, silno jego potresl, izšel iz njego, i stal se kako mrtvy, tako da mnogi govorili, da umrl.
-26 Jesus vzel jego ruku, voznesl jego, i vstal.
-27 I kak všel v dom, Jego učeniki spytali Jego: Čemu my jego izgnati ne mogli?
-28 I rěkl jim: Toj rod duha inače ne može izojdti. Jedino črěz molitvu i post.
-29 Izšli odtud, prěšli črěz Galileju, i ne htěl, daby někto o tom znal.
-30 Ibo učil Svojih učenikov i govoril jim: Syn Člověčsky bude izdan v ljudske ruky i ubijut Jego, i Ubity vstane tretjego dnja.
-31 No oni slova ne razuměli, a bojali se Jego pytati.
-32 I prišli do Kapernauma. Kogda byli v domu, pytal jih: O čem jeste na stežkě govorili?
-33 No oni molčali, ibo na stežkě medžu soboju se sporili, kto iz njih byl največši.
-34 I usědl, prizval jih dvanadseti i rěkl jim: Jestli někto hče byti prvym, nehaj bude poslědnjim iz vsih i slugoju vsih.
-35 I vzevši děte, postavil je posrěd njih, i objevši je, rěkl jim:
-36 Kto prijme jedno tako děte v ime Moje, Mene prijme, a kto Mene prijme, ne Mene prijme, ale Ovogo, ktory Mene poslal.
-37 Odgovoril Jemu Joan: Učitelju, jesmo uviděli něktorogo, ktory v ime Tvoje črty izkydnul. Ne hodil s nami, to jesmo jemu zabranili.
-38 A Jesus rěkl: Ne zabranjajte jemu. Ibo nikto ne jest, ktory by tvoril čudesa v ime Moje, a moglby skoro zle govoriti o Mně.
-39 Ibo, kto ne jest protiv vam, za vami jest.
-40 Ibo, kto by vam dal čašku vody do pitja v ime Moje, zato že jeste od Hristosa, istinno govorim vam, ne izgubi svojej nagrady.
-41 A kto jest povodom grěha jedinogo iz tyh malyh, věrečih v Mene. Jemu lěpje byloby, daby byl privezany mlynsky kamenj okolo šije jego i byl kydnuty v morje.
-42 A jestli ruka tvoja jest povodom grěha tvojego, odsěči ju: lěpje jest tobě vojdti do života věčnogo sěkanym, než imajuči obě ruky, idti do pekla v ogonj neugasimy,
-43 kde črvjak jih ne umiraje, a ogonj ne gasne.
-44 A jestli noga tvoja jest povodom grěha tvojego, odsěči ju: lěpje jest tobě vojdti hromym do věčnogo života, než imajuči obě nogy, byti kydnutym do pekla ognja neugasimogo,
-45 kde črvjak jih ne umiraje, a ogonj ne gasne.
-46 I jestli tvoje oko jest povodom grěha tvojego, izbavi se jego: lěpje jest tobě vojdti jednookym do kraljevstva Božjego, než imajuči oba oči, kydnutym byti do ognjenogo pekla,
-47 kde črvjak jih ne umiraje, a ogonj ne gasne.
-48 Ibo každy ognjem bude posoljeny, i každa žrtva bude solju posoljena.
-49 Dobra jest solj, ale jestli solj svoj vkus izgubi, čim že ju popravite? Imajte v sobě sok, i mir imajte medžu soboju.
+1 I rěkl k njim: Istinno govorju vam: sut něktori iz tyh, ktori tut stojet, ktori ne vkuset smrti, až budut ugleděti, da Kraljevstvo/Carstvo Božje prišlo v silě.
+2 I po šest dnjah vzel Jesus Petra i Jakoba, i Joana, i izvedl jih osobno na vysoku goru, i prěměnil se prěd njimi.
+3 I Jego odědže staly se tako světle i velmi běle kako sněg. Tako běle, kako ni jedin na zemji běliti ne može.
+4 I javil se Ilija s Mojzesom, i govorili s Jesusom.
+5 I Petr rěkl k Jesusu: Rabbi, dobro nam jest tut byti; učinimo tri šatory: Tobě jedin, a Mojzesu jedin, a Iliji jedin.
+6 Ne znal, čto govoril, ibo byli zastrašeni.
+7 I javil se oblak, ktory Jih zaslonil, i prišel iz oblaka glas, govoreči: To jest Syn Moj ljubjeny, slušajte Jego.
+8 I směsta obzirajuči se, nikogo veče ne viděli, jedino Jesusa samogo.
+9 I kogdy shodili iz gory, kazal jim, daby nikomu ne pověděli, čto viděli, poka Syn Člověčsky ne vstane iz mrtvyh.
+10 I shranili to slovo u sebe, pytajuči se medžu soboju, čto to jest: vstati iz mrtvyh.
+11 I pytali Jego: Čemu fariseji i učeni v Pismu govoret, da trěba, daby najprvo prišel Ilija?
+12 On odgovoril jim: Ilija prijde najprvo i napravi vse; a kako jest napisano o Synu Člověčskom, daby mnogo trpěl i prězirany byl.
+13 Ale vam govorim, da Ilija prišel. Učinili jemu, čto htěli, tako, kako jest napisano o njem.
+14 I kogdy prišel do Svojih učenikov, viděl mnogu tolpu okolo njih, i učenyh v Pismu govorečih s njimi.
+15 I směsta vsi ljudy, viděvši Jesusa, divili se i prěstrašili se. Priběgli, aby Jego pozdravjati (~vitati).
+16 I pytal jih: O čem govorite medžu soboju?
+17 I odgovoril jedin iz tolpy i rěkl: Učitelju, jesm privedl Tobě syna mojego, ktory ima němy duh.
+18 I kdekoli jego napadne, trese jego, i sliny tekut, i skripi zubami, i stane se negybky (~ kak kamenj). Jesm govoril Tvojim učenikam, daby jego izgnali, no ne mogli.
+19 On odgovoril jim: O narode nevěrny, kak dolgo pri vas budu? Kak dolgo vas trpěti budu? Privedite jego do Mene.
+20 I privedli jego do Njego. I kak toliko jego uzrěl, duh počel jego tresti, i padši na zemju, valjal se i sliny tekli.
+21 I spytal otca jego: Kogdy se to jemu stalo? On rěkl: Od dětinstva.
+22 I često jego metal v ogonj i vodu, daby jego ubil; no jestli možeš, pomoži nam, pomiluj se nad nami.
+23 Jesus rěkl jemu: Jestli možeš věriti. Vse jest možno tomu, ktori věri.
+24 I směsta kriknul otec děteta, so solzami rěkl: Věrju, Gospodine! Pomoži mojemu nevěrju.
+25 Jesus viděvši, da se tolpa sbirala, grozil nečistomu duhu, rěkl jemu: Němy i gluhy duše (sěv. ~duhu), ja tobě kažu, izojdi iz njego i ne vhodi už v njego.
+26 I kriknul, silno jego potresl, izšel iz njego, i stal se kako mrtvy, tako da mnogi govorili, da umrl.
+27 Jesus vzel jego ruku, voznesl jego, i vstal.
+28 I kak všel v dom, Jego učeniki spytali Jego: Čemu my jego izgnati ne mogli?
+29 I rěkl jim: Toj rod duha inače ne može izojdti. Jedino črěz molitvu i post.
+30 Izšli odtud, prěšli črěz Galileju, i ne htěl, daby někto o tom znal.
+31 Ibo učil Svojih učenikov i govoril jim: Syn Člověčsky bude izdan v ljudske ruky i ubijut Jego, i Ubity vstane tretjego dnja.
+32 No oni slova ne razuměli, a bojali se Jego pytati.
+33 I prišli do Kapernauma. Kogda byli v domu, pytal jih: O čem jeste na stežkě govorili?
+34 No oni molčali, ibo na stežkě medžu soboju se sporili, kto iz njih byl največši.
+35 I usědl, prizval jih dvanadseti i rěkl jim: Jestli někto hče byti prvym, nehaj bude poslědnjim iz vsih i slugoju vsih.
+36 I vzevši děte, postavil je posrěd njih, i objevši je, rěkl jim:
+37 Kto prijme jedno tako děte v ime Moje, Mene prijme, a kto Mene prijme, ne Mene prijme, ale Ovogo, ktory Mene poslal.
+38 Odgovoril Jemu Joan: Učitelju, jesmo uviděli něktorogo, ktory v ime Tvoje črty izkydnul. Ne hodil s nami, to jesmo jemu zabranili.
+39 A Jesus rěkl: Ne zabranjajte jemu. Ibo nikto ne jest, ktory by tvoril čudesa v ime Moje, a moglby skoro zlo govoriti o Mně.
+40 Ibo, kto ne jest protiv vam, za vami jest.
+41 Ibo, kto by vam dal čašku vody do pitja v ime Moje, zato že jeste od Hristosa, istinno govorim vam, ne izgubi svojej nagrady.
+42 A kto jest povodom grěha jedinogo iz tyh malyh, věrečih v Mene. Jemu lěpje byloby, daby byl privezany mlynsky kamenj okolo šije jego i byl kydnuty v morje.
+43 A jestli ruka tvoja jest povodom grěha tvojego, odsěči ju: lěpje jest tobě vojdti do života věčnogo sěkanym, než imajuči obě ruky, idti do pekla v ogonj neugasimy,
+44 kde črvjak jih ne umiraje, a ogonj ne gasne.
+45 A jestli noga tvoja jest povodom grěha tvojego, odsěči ju: lěpje jest tobě vojdti hromym do věčnogo života, než imajuči obě nogy, byti kydnutym do pekla ognja neugasimogo,
+46 kde črvjak jih ne umiraje, a ogonj ne gasne.
+47 I jestli tvoje oko jest povodom grěha tvojego, izbavi se od njego: lěpje jest tobě vojdti jednookym do kraljevstva Božjego, než imajuči oba očij, kydnutym byti do ognjenogo pekla,
+48 kde črvjak jih ne umiraje, a ogonj ne gasne.
+49 Ibo každy ognjem bude posoljeny, i každa žrtva bude solju posoljena.
+50 Dobra jest solj, ale jestli solj svoj vkus izgubi, čim že ju popravite? Imajte v sobě sok, i mir imajte medžu soboju.
 
 ## Razděl 10
 
 1 I pošel odtud, prišel v granice židovskoj zemje za Jordanom, i šli do Njego tolpy, i učil jih snova, kak byl Jego obyčaj.
-2 I pristupivše fariseji, pytali Jego: Či godi se mužu pustiti ženu? Pokušajuči Jego.
+2 I pristupivše fariseji, pytali Jego: Či godi se mužu odpustiti ženu? Pokušajuči Jego.
 3 On odgovoril: Čto vam razkazal Mojzes?
 4 Oni rěkli: Mojzes dopustil napisati list razvodny i opustiti.
 5 Odgovoril jim Jesus: Radi tvrdosti vašego srdca napisal vam tu zapověd.
@@ -416,7 +416,7 @@ oblěčeny s dobrym razumom: i bojali se.
 12 I jestli by žena ostavila muža svojego, i vzela drugogo, čini prěljubstvo.
 13 I prinosili do Njego děti, daby jih dotknul. A učeniki grozili prinositeljam.
 14 Videči to Jesus, iměl za zlo, i rěkl jim: Pustite dětam idti do Mene, i ne zabranjajte jim, ibo takovo jest carstvo božje.
-15 Istinno kažu vam: Kto by ne prijel carstva božjego kak děte, ne vojde do njego.
+15 Istinno kažu vam: Kto by ne prijel Kraljevstva Božjego kak děte, ne vojde do njego.
 16 I obimajuči jih, i kladuči na nje ruky, blagoslovil je.
 17 A kogda on izšel v put, priběgl jedin, padavši na kolěna prěd Njim, pytal Jego: „Učitelju dobry. čto imam učiniti, dabyh prijel věčny život?“
 18 A Jesus jemu rěkl: „Čemu nazyvaješ Mene Dobrym? Nikto ne jest dobry, jedino Bog.
@@ -425,7 +425,7 @@ oblěčeny s dobrym razumom: i bojali se.
 21 A Jesus, pogledavši na njego s milostju, rěkl jemu: „Idi, čtokoli imaš, prodaj i razdaj ubogym, i budeš iměti se blago na nebesah. Prijdi, naslěduj Mene.“
 22 S žalostju poslušavši slova, odšel smutny, ibo iměl mnogo iměnja.
 23 A Jesus obozrěvši se, rěkl svojim učenikam: „Kako težko jest tym, ktori imajut monety, dojdti do Kraljevstva Božjego!“
-24 A učeniki se začudili Jego slovami. No Jesus rěkl jim: „Děti, kako trudno jest tym, ktori v monety dověrjajut, dojdti do Kraljevstva Božjego.
+24 A učeniki se začudili Jego slovami. No Jesus rěkl jim: „Děti, kako trudno jest tym, ktori v bogatstvo dověrjajut, dojdti do Kraljevstva Božjego.
 25 Legše jest velbludu projdti črěz uho igly, než bogatomu vojdti do Kraljevstva Božjego.“
 26 Oni tym věče se divili, govoreči sami k sobě: „I kto može byti spaseny?“
 27 A Jesus pogledavši na njih, rěkl: „U Boga vse jest možno.“
@@ -439,11 +439,11 @@ oblěčeny s dobrym razumom: i bojali se.
 35 I prišli do Njego Jakob i Joan, syni Zebedeja, govoreči: Učitelju, hčemo, abys učinil nam, o čto prosimo.
 36 A On jim rěkl: Čto hčete, abyh vam učinil?
 37 I rěkli: Daj nam, abyhmo sěděli jedin po pravici Tvojej, a vtory po lěvici Tvojej v slavě Tvojej.
-38 A Jesus jim rěkl: Ne znate, o čto prosite. Možete piti čašu, ktoru ja piju? Ili byti kreščeni krestom, ktorym ja krešču?
+38 A Jesus jim rěkl: Ne znate, o čem prosite. Možete piti čašu, ktoru Ja piju? Ili byti kreščeni krestom, ktorym Ja krešču?
 39 A oni Jemu odgovorili: Možemo. A Jesus jim rěkl: Čašu, ktoru ja piju, piti budete, i krestom, ktorym se ja krešču, kreščeni budete,
 40 ale sěděti po pravici Mojej ili po lěvici ne jest Mi dano vam dati, ale ktorym jest povinno.
 41 A ti deset, počeli se gněvati na Jakoba i Joana.
-42 A Jesus, prizvavši jih, pověděl jim: «Znate, da ti, ktori se uvažajut za vladcev narodov, dělajut svojim narodam opresiju, a nad njim naduživajut svoju vladu.
+42 A Jesus, prizvavši jih, pověděl jim: Znate, da ti, ktori se uvažajut za vladcev narodov, dělajut svojim narodam opresiju, a nad njim naduživajut svoju vladu.
 43 Ale ne tako jest medžu vami, ale ktokoli by htěl byti velikym, bude slugoju vašim,
 44 a ktokoli medžu vami by htěl byti prvym, bude vsih slugoju.
 45 Ibo Syn Člověčsky ne prišel, aby Jemu služili, ale aby služil i dal dušu svoju na izkup za mnogo ljudov.
@@ -469,7 +469,7 @@ oblěčeny s dobrym razumom: i bojali se.
 10 Blagoslovjeno Kraljevstvo Otca našego Davida, ktoro prihodi. Hosanna na vysokostah!
 11 I všel v Jerusalem do svetilišča, i obgleděl vse, kogdy už večerna časina byla, izšel do Betanije s dvanadsetju.
 12 I zautra, kogdy izšli iz Betanije, on byl gladny.
-13 I viděl iz daleka figu imajuča listy, prišel, aby se dověděti, či by mogl něčto na njej najdti. I prišel do njej, ničego ne našel než listy, ibo ne byl čas na figy.
+13 I viděl iz daleka figu imajuču listy, prišel, aby se dověděti, či by mogl něčto na njej najdti. I prišel do njej, ničego ne našel než listy, ibo ne byl čas na figy.
 14 I odgovarjajuči, rěkl jej: Daby nikto nikogdy ne jedl od tebe plodov. I slyšali učeniki Jego.
 15 I prišli do Jerusalema. I všel v svetilišče, počel izganjati tyh, ktori prodavali i kupovali v svetilišču. I provrgnul stoly izměnjenja pěnezov i lavky tyh, ktori prodavali golubov,
 16 i ne dopustil, daby nesl někto něčto črěz svetilišče.
@@ -479,7 +479,7 @@ oblěčeny s dobrym razumom: i bojali se.
 20 A rano, iduči mimo, viděli, da drěvo figovo usyhalo od korenjev.
 21 I Petr pripomněl sobě, rěkl Jemu: Rabbi, gledaj, drěvo figovo, ktoro jesi proklel, izsohnulo.
 22 A Jesus odgovoril jim: Imějte věru v Boga.
-23 Pravdu vam govorju, da kto by rěkl toj gorě: Voznesi se i kydni se v morje, i ne sumněvalby v svojem srdcu, ale věrilby, daby se to stane: Tomu by se to stalo.
+23 Istinno vam govorju, da kto by rěkl toj gorě: Voznesi se i kydni se v morje, i ne sumněvalby v svojem srdcu, ale věrilby, daby se to stane: Tomu by se to stalo.
 24 Zato vam govorim: Vse, o čem v molitvě prosite, věrite, da prijmete, i stane se vam.
 25 I kogdy stanete moliti se, odpuščajte, jestli imate něčto protiv něktoromu, daby i vaš otec, ktory jest na nebesah, odpuščal vam vaše grěhy.
 26 Ale jestli vy ne odpuščajte, ni vaš otec, ktory jest v nebu, ne odpusti vam vaše grěhy.
