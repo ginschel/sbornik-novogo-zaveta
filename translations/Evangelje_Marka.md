@@ -38,7 +38,7 @@
 34 I uzdravil mnogo ljudij, ktori stradali različnymi hvorobami, i izgnal mnogo črtov, i ne dopustil jim govoriti, da Jego znali.
 35 Utrom izšel na pusto město i tam se molil.
 36 I šel za Njim Simon i ti, ktori pri Njem byli.
-37 Kogdy našli Jego, pověděli Jemu: Vsi tebe iščut.
+37 Kogdy našli Jego, pověděli Jemu: zamiastVsi tebe iščut.
 38 I rěkl jim: Pojdemo drugoju stežkoju do susědnyh gradov, dabyh i tam mogl učiti, ibo na to Jesm izšel.
 39 I glasil v jih synagogah i po vsej Galileji i izgnal črtov.
 40 I prišel k Njemu leprovaty člověk, prosil Jego, padajuči na kolěna: Jestli hčeš, možeš mene očistiti.
@@ -167,10 +167,10 @@
 2 I kogda On izhodil iz lodi, směsta Jemu priběgl iz grobov člověk s nečistym duhom,
 3 ktory žil v grobah, i nikto ne mogl jego už lancuhami svezati:
 4 ibo često svezali jego v lancuhah na nogah i rukah, ktore drobil i raztrgal, i nikto ne mogl jego pokoriti;
-5 i vsegda v dnju i v noči v grobah i v gorah byl, kričal i tolkl (~bil) sebe ob kamenje.
+5 i vsegda v dnju i v noči v grobah i v gorah byl, kričal i tolkl  bil) sebe ob kamenje.
 6 Uzrěl Jesusa iz daleka, priběgl i poklonil se Jemu,
 7 i kričavši glasno, rěkl: Čto Tobě do mene, Jesuse, Syne Boga Najvysšego? Zaklinam Te pri Bogu, ne muči mene!
-8 Ibo jemu rěkl: Izojdi, duše (~ sěv. duhu) nečisty, iz člověka!
+8 Ibo jemu rěkl: Izojdi, duše  sěv. duhu) nečisty, iz člověka!
 9 I pytal jego: Kako jest tvoje ime? I rěkl Jemu: Ime mi Legion, ibo nas jest mnogo.
 10 I prosil Jego mnogokratno, daby ne izgnal jih iz kraja.
 11 A tam pri gorě bylo veliko stado svinej, ktoro paslo.
@@ -188,20 +188,20 @@ oblěčeny s dobrym razumom: i bojali se.
 22 I prišel jedin iz načelnikov synagogy, imena Jair, i uzrěl Jego, upadl pri nogah Jego,
 23 i prosil jego velmi: Moja dočera umre. Pojdi, vloži na nju ruky, daby ozdravěla i živa ostala.
 24 I šel s njim, a za Njim šla velika tolpa i tisknuli Jego.
-25 A žena, ktora iměla tečenje krvi črěz dvanadset lět (~ godov), i mnogo iztrpěla od mnogyh lěkarev,
+25 A žena, ktora iměla tečenje krvi črěz dvanadset lět  godov), i mnogo iztrpěla od mnogyh lěkarev,
 26 i iměnje svoje izdala, a ničto jej ne pomoglo i se ješče gorše iměla,
 27 uslyšavši o Jesusu, prišla iz zada, medžu tolpoju, i dotknula odědžu Jego.
 28 Ibo govorila: Ako toliko tknu odědžu Jego, budu zdrava.
 29 Už ustal jej krvotok i počula v tělu, da byla uzdravjena od hvoroby.
 30 A razpoznavši směsta Jesus v Sobě moč, ktora iz Njego izšla, obrativši se k tolpě, govoril: Kto dotknul odědžu Moju?
 31 A Jego učeniki Jemu govorili: Vidiš kak tolpa tiskne se, a govoriš: Kto Mene dotknul?
-32 I On se obziral (~razgledal) po narodu, daby viděl tu, ktora to učinila.
+32 I On se obziral razgledal) po narodu, daby viděl tu, ktora to učinila.
 33 A žena, boječi se i državši, ibo znala, čto se s njeju stalo, prišla i upadla prěd Njim a pověděla Jemu vsu pravdu.
 34 A On jej rěkl: Dočerko, tvoja věra tebe uzdravila. Idi v mir, i budi zdrava od tvojej hvoroby.
 35 A kogdy On ješče govoril, prišli ljudi od načelnika synagogy i govoreči: Tvoja dočerka umrla. Čemu ješče trudiš učitelja?
 36 A Jesus uslyšavši slova, ktore pověděli, rěkl načelniku synagogy: Ne boji se, toliko věri.
 37 I ne dopustil nikomu idti za Njim, jedino Petru i Jakobu, i Joanu, bratu Jakoba.
-38 I prišli do doma načelnika synagogy, i viděl golk (~šum), i plače i revenje.
+38 I prišli do doma načelnika synagogy, i viděl golk šum), i plače i revenje.
 39 I vševši, rěkl jim: Čemu golk tvorite i plačete? Děvčina ne umrla, ale spi.
 40 I smějali se iz Njego. A on izgnavši vsih, vzel otca i mati děvčiny i tyh, ktori byli s Njim, i všel do komnaty, v ktoroj děvčina ležala.
 41 I vzel za ruku děvčinu, rěkl jej: Talita kumi, to jest, prěvodženo: Děvčino, (tobě govorju), vstani!
@@ -212,12 +212,12 @@ oblěčeny s dobrym razumom: i bojali se.
 
 1 I izševši odtud, prišel do otčiny svojej, i šli za Njim učeniki Jego.
 2 I kogdy prišla subota, počel v synagogě učiti. I mnogi, slušajuči Jego, čudili se učenju Jego, govoreče: Odkud Jemu to vse? I čto to za mudrost, ktora Jemu jest dana, i take čudesa, ktore se dějut črěz ruky Jego?
-3 Či toj ne jest remeslnik, syn Marije, brat Jakoba, i Josefa, i Judasa, i Simona? Či i sestry Jego tu u nas ne sut? I sumněvali se o Njem (~ ne věrili Jemu).
+3 Či toj ne jest remeslnik, syn Marije, brat Jakoba, i Josefa, i Judasa, i Simona? Či i sestry Jego tu u nas ne sut? I sumněvali se o Njem  ne věrili Jemu).
 4 I Jesus jim govoril: Prorok nikde ne jest bez česti, toliko v otčině svojej i v domu svojem i rodině svojej.
 5 I ne mogl tam učiniti nijednogo čuda, a toliko malo hvoryh, kladuči ruky, uzdravjal.
 6 I začudil se iz povoda nevěrja jih. I obhodil okolne sela i učil.
 7 I pozval dvanadset. I počel jih po dvoma posylati, i dal jim moč nad duhami nečistymi.
-8 I razkazal jim, aby ničto na stežku ne brali, toliko palu (~kyj): ni torby, ni hlěba, ni monety v měšku;
+8 I razkazal jim, aby ničto na stežku ne brali, toliko palu kyj): ni torby, ni hlěba, ni monety v měšku;
 9 I aby se obuli v sandalah, a ne oblačili dvě suknje.
 10 I govoril jim: Kogdy do někakogo doma vojdete, ostanite tam, až odsud izojdete.
 11 A kogdy někto by vas ne prijmal ni vas slyšal, odidite odtud, potresite prah iz nog vaših na svědočstvo jim.
