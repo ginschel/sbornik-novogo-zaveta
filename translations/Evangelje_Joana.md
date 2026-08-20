@@ -74,8 +74,8 @@
 16 A tym, ktori golubi prodavali, rěkl: Iznesite to odtud, a ne činite doma Otca Mojego domom kupca.
 17 I vozpametali sobě učeniki Jego, že jest napisano: Usrdnost doma Tvojego sje Mene.
 18 Togda odgovorili Židi i rěkli Jemu: Kaky znak nam pokažeš, da to činiš?
-19 Odgovoril Jesus i rěkl jim: Razvalite to svetilišče, a vo treh dnjah postavju ju.
-20 Rěkli togdy Židi: Četyrideset i šest let strojili to svetilišče, a Ty ju vo treh dnjah postaviš?
+19 Odgovoril Jesus i rěkl jim: Razvalite to svetilišče, a vo trěh dnjah postavju ju.
+20 Rěkli togdy Židi: Četyrideset i šest let strojili to svetilišče, a Ty ju vo trěh dnjah postaviš?
 21 Ale On govoril o svetilišču Těla Svojego.
 22 Kogda vozkresnul, spomněli učeniki Jego, da jim to pověděl; i uvěrili Pismu i slovu, ktoro rěkl Jesus.
 23 A kogdy byl v Jerusalemu v Pashu v den svety, mnogo jih uvěrilo v ime Jego, videči čuda Jego, ktore činil.
