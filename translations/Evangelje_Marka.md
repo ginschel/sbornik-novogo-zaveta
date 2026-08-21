@@ -3,7 +3,7 @@
 ## Razděl 1
 
 1 Početok Evangelij Jesusa Hristosa, Syna Božjego.
-2 Kako jest napisano u proroka Izaje: Gledajte, Ja posylaju angela mojego prěd lice Tvoje, ktory prigotovi put (~stežku) Tvoj.
+2 Kako jest napisano u proroka Izaje: Gledajte, Ja posylaju Angela Mojego prěd lice Tvoje, ktory prigotovi put (~stežku) Tvoj.
 3 Glas zovučego na pustynji: Gotovite put Gospodnji, učinite Jemu proste stežky.
 4 Byl Joan na pustynji, kresteči i dělal krest pokajanja na odpuščenje grěhov.
 5 I izhodila k njemu vsa krajina židovska i vsi iz Jerusalema, i byli od njego kreščeni v rěkě Jordan, i priznali se do grěhov svojih,
@@ -13,7 +13,7 @@
 9 I stalo se, v ove dni prišel Jesus iz Nazareta v Galileju i byl kreščen od Joana v Jordanu.
 10 A směsta, izstupivši iz vody, uzrěl odkryvajuče se nebesa i Duha, ktory kako golubica sošel na Njego.
 11 I izjavil se glas iz neba: Ty jesi Moj mily Syn, v Tobě imam blagovolěnje.
-12 A směsta Duh izgnal Jego na pustynju.
+12 A směsta Duh izvedl Jego na pustynju.
 13 I byl na pustynji četyrideset dnjev i četyrideset nočij, i byl pokušeny od djabla, i byl so zvěrami, a angeli služili Jemu.
 14 A potom, kogda Joan byl izdany, prišel Jesus do Galileje, glasil Evangelje Kraljevstva Božjego,
 15 govoreči: Uže se izpolnil čas i približilo se Kraljevstvo Božje. Obračajte se i věrite v Evangelje.
@@ -38,11 +38,11 @@
 34 I uzdravil mnogo ljudij, ktori stradali različnymi hvorobami, i izgnal mnogo črtov, i ne dopustil jim govoriti, da Jego znali.
 35 Utrom izšel na pusto město i tam se molil.
 36 I šel za Njim Simon i ti, ktori pri Njem byli.
-37 Kogdy našli Jego, pověděli Jemu: zamiastVsi tebe iščut.
+37 Kogdy našli Jego, pověděli Jemu: Vsi Tebe iščut.
 38 I rěkl jim: Pojdemo drugoju stežkoju do susědnyh gradov, dabyh i tam mogl učiti, ibo na to Jesm izšel.
 39 I glasil v jih synagogah i po vsej Galileji i izgnal črtov.
 40 I prišel k Njemu leprovaty člověk, prosil Jego, padajuči na kolěna: Jestli hčeš, možeš mene očistiti.
-41 A Jesus, pomiloval se nad njim, iztegnul svoju ruku i dotknuvši jego, rěkl jemu: Hču, dabys byl očiščen.
+41 A Jesus, pomiloval se nad njim, iztegnul Svoju ruku i dotknuvši jego, rěkl jemu: Hču, dabys byl očiščen.
 42 A kogda rěkl, naglo lepra ostavila jego, i byl očiščen.
 43 I zagrozil jemu, i směsta jego pustil.
 44 I rěkl jemu: Gledaj, dabys nikomu ničto ne pověděl. Ale idi, pokaži se najvysšemu kaplanu i složi za svoje očiščenje žrtvu, ktoru prikazal Mojzes na svědočstvo jim.
